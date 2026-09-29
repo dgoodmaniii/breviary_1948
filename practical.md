@@ -1,0 +1,2253 @@
+# Practical Method of Reading the Breviary
+
+By
+
+**REV. JOHN J. MURPHY**
+
+*"Seven times a day I have given praise to Thee."—Ps. cxviii. 164*
+
+NEW YORK
+BLASE BENZIGER & CO., INC.
+1921
+
+---
+
+Nihil Obstat.
+ARTHUR J. SCANLAN, S.T.D.,
+*Censor Librorum.*
+
+Imprimatur.
+✠ PATRICK J. HAYES, D.D.,
+*Archbishop of New York.*
+
+New York, April 25, 1921.
+
+Copyright, 1921, by Blase Benziger & Co., Inc.
+
+---
+
+TO
+THE BLESSED VIRGIN MARY
+MOTHER OF GOD
+AND
+QUEEN OF THE CLERGY
+THIS
+LITTLE VOLUME
+IS
+AFFECTIONATELY DEDICATED
+BY
+THE AUTHOR
+
+---
+
+## PREFACE
+
+The Divine Office is not difficult to say if only there be put into the study of its various parts a little method and intelligent attention.
+
+This book has been written principally to help ecclesiastical students to learn in a practical way, and in a brief time, how to say their Office correctly. It is hoped that those who carefully study its pages will find themselves thoroughly prepared, on the day of their ordination to Subdeaconship, to take upon themselves the perpetual obligation of the Breviary.
+
+In the concluding chapters of this work—under the heading of PRACTICAL THEORY—the subject of Titulars and Dedication is treated at length. Under this heading an amount of theory has been given which will be found useful not only on account of its direct bearing on the practical question under consideration, but also because by its study the whole composition of the Ordo itself will be better understood. These chapters, it is confidently believed, will be found helpful not only to students, but also to all priests attached to churches, who often experience some difficulty in arranging the Office of the octave of their Titulars.
+
+THE AUTHOR.
+
+Feast of the Purification, 1921.
+
+---
+
+## CONTENTS
+
+### CHAPTER I
+
+**PRELIMINARY REMARKS** . . . . . . . 11
+
+- The Breviary . . . . . . . . . . . 11
+- Rubrics . . . . . . . . . . . . . 11
+- Rite . . . . . . . . . . . . . . 11
+- Feasts and Ferials . . . . . . . . . 12
+
+### CHAPTER II
+
+**DIVISIONS OF THE BREVIARY** . . . . 15
+
+- The Hours . . . . . . . . . . . . 16
+- Ordinary Beginning and Ending of the Hours . . . . . . . . . . . . 17
+- Antiphons and Psalms . . . . . . . 18
+- Hymns . . . . . . . . . . . . . 20
+- Varia . . . . . . . . . . . . . . 21
+
+### CHAPTER III
+
+**MATINS OF NINE LESSONS** . . . . . 23
+
+- The Scheme of Matins . . . . . . . 23
+- The "Invitatorium" and Psalm "Venite Exsultemus" . . . . . . . . . . 24
+- Versicle and Response . . . . . . . 25
+- Absolutions and Benedictions . . . . 26
+- The Lessons . . . . . . . . . . . 26
+- Ninth Lesson from Another Office . . 28
+- Responsoria . . . . . . . . . . . 30
+- The Ending of Matins . . . . . . . 33
+
+### CHAPTER IV
+
+**OFFICES OF THREE LESSONS** . . . . 35
+
+### CHAPTER V
+
+**LAUDS** . . . . . . . . . . . . . 39
+
+- The Scheme of Lauds . . . . . . . . 39
+- Preces Feriales . . . . . . . . . . 40
+- Orations . . . . . . . . . . . . 41
+- Conclusions of Orations . . . . . . 42
+- Commemorations . . . . . . . . . 43
+- The Final Antiphon to the Blessed Virgin . 45
+- Lauds of the First and Second Schemes . 45
+
+### CHAPTER VI
+
+**THE LITTLE HOURS** . . . . . . . . 49
+
+- The Scheme of the Little Hours . . . 49
+- "Responsorium Breve" . . . . . . . 50
+- Prime in Particular . . . . . . . . 51
+- The "Lectio Brevis" . . . . . . . . 52
+- Preces Dominicales . . . . . . . . 52
+- The Psalms of Prime . . . . . . . . 53
+- Ending of Prime . . . . . . . . . 54
+
+### CHAPTER VII
+
+**VESPERS** . . . . . . . . . . . . 55
+
+- The Scheme of Vespers . . . . . . . 55
+- First and Second Vespers . . . . . . 55
+
+### CHAPTER VIII
+
+**COMPLINE** . . . . . . . . . . . . 59
+
+### CHAPTER IX
+
+**WHERE THE DIFFERENT PARTS OF THE OFFICE ARE TO BE FOUND** . . 61
+
+- The Office on Important Feasts . . . . 63
+
+### CHAPTER X
+
+**USEFUL ADDITIONS** . . . . . . . . 67
+
+- Translation of Feasts . . . . . . . . 67
+- Major Sundays . . . . . . . . . . 67
+- Major Ferials . . . . . . . . . . 68
+- Privileged Vigils . . . . . . . . . 69
+- Octaves . . . . . . . . . . . . 69
+- When the Hours are to be Said . . . . 70
+- One Office Instead of Another . . . . 72
+- Ceremonies . . . . . . . . . . . 75
+- Ordo Reading . . . . . . . . . . 76
+
+## PRACTICAL THEORY
+
+### TITULAR AND DEDICATION OF CHURCHES
+
+### CHAPTER XI
+
+**THE TITULAR AND DEDICATION OF ONE'S OWN CHURCH** . . . . . . 81
+
+- State of the Question . . . . . . . 81
+- Meaning of Words . . . . . . . . . 82
+- New Office-Rubrics . . . . . . . . 83
+- Priests Concerned . . . . . . . . . 84
+- The Question Proper . . . . . . . . 86
+- General Information . . . . . . . . 86
+
+### CHAPTER XII
+
+**OCCURRENCE AND TRANSLATION** . . 89
+
+- General Rules . . . . . . . . . . 89
+- Other Rules . . . . . . . . . . . 90
+
+### CHAPTER XIII
+
+**OTHER CASES OF OCCURRENCE** . . . 93
+
+- Points to be Considered . . . . . . 93
+
+### CHAPTER XIV
+
+**OCCURRENCE AND OCTAVES** . . . . . 97
+
+- Remarks . . . . . . . . . . . . 97
+
+### CHAPTER XV
+
+**TRANSLATION OF FEASTS** . . . . . 101
+
+- Translation and Octaves . . . . . . 102
+
+### CHAPTER XVI
+
+**CONCURRENCE OF OFFICES** . . . . . 105
+
+- Rules of Concurrence . . . . . . . 106
+
+### CHAPTER XVII
+
+**COMMEMORATIONS** . . . . . . . . 109
+
+- Illustration . . . . . . . . . . . 110
+- Commemorations Proper . . . . . . 111
+- Rules in Particular . . . . . . . . 112
+- Ninth Lesson in Matins . . . . . . . 115
+
+### CHAPTER XVIII
+
+**TITULARS WITH ASSOCIATES** . . . . 117
+
+- Principal Patron . . . . . . . . . 117
+- Secondary Patron . . . . . . . . . 118
+
+### CHAPTER XIX
+
+**PRACTICAL RECAPITULATION** . . . . 119
+
+- During Octave of Titular . . . . . . 120
+- How to Say the Office of the Feast . . 122
+
+### CHAPTER XX
+
+**THE MASS OF THE TITULAR** . . . . . 123
+
+- On the Festival Itself . . . . . . . 123
+- During the Octave . . . . . . . . 124
+- The Office of the Dedication . . . . 126
+
+## APPENDIX
+
+- Ordination Penance . . . . . . . . 127
+- Probable Opinions . . . . . . . . 128
+- Some Recent Changes . . . . . . . 129
+- Commemorations . . . . . . . . . 129
+- Order of Commemorations . . . . . . 131
+- Conclusion of Hymns . . . . . . . 132
+- New Missal-Rubrics . . . . . . . . 132
+
+---
+
+# PRACTICAL METHOD OF READING THE BREVIARY
+
+## CHAPTER I
+
+## PRELIMINARY REMARKS
+
+### The Breviary
+
+**1.** The *Breviary* is a compendium of the lengthy Office recited by the monks of the distant past. To-day, at least all Clerics in *Major Orders* are bound by Canon Law to the daily recitation of the Office (can. 135).
+
+### Rubrics
+
+**2.** *Rubrics* (*ruber*, red) are directions (usually given in red print in liturgical books) by which the person concerned is enabled to perform his functions with due correctness. These directions, as we find them scattered throughout the Breviary, are mostly particular applications of the *General Rubrics* found at the beginning of the first volume (*Pars Hiemalis*) of the Office.
+
+### Rite
+
+**3.** By the *rite* of an Office is meant the rank it occupies in the liturgical hierarchy, according to its relative importance. The various rites are:
+
+*Doubles*
+
+a) Double of the first class;
+b) Double of the second class;
+
+&nbsp;&nbsp;&nbsp;&nbsp;*(which alone may have octaves (n. 84))*
+
+c) Double major;
+d) Double minor (usually written without the addition "minor");
+
+*Minor Rites*
+
+e) Semi-double;
+f) Simple.[^1]
+
+### Feasts and Ferials
+
+**4.** Offices may be festal or ferial. In the first case it is usually a question of *feasts* (saint or mystery) celebrated on certain *dates*, e. g., St. Dominic on August 4th. In the second case it is generally a question of Offices belonging to a certain *day* of the year, e. g., the Wednesday after the fourth week of Lent. Everybody knows that the same date does not always fall on the same day; this is one of the important features distinguishing festal and ferial Offices. The latter are thus called from the fact that days of the week are translated into Latin by the word *feria*, e. g., Wednesday is "*feria quarta*," being the fourth day of the week. Sunday, however, is called *Dominica* (*dies*), and Saturday, Sab-
+
+[^1]: When the Calendar does not mention the degree or rite of a saint, it means the feast is simple. Sometimes doubles and semi-doubles are *simplified*, i. e., treated as being simple (e. g., when they are merely commemorated in other offices).
+
+*bato*, for obvious reasons. Again, it may be said that festal Offices are *personal*, whilst ferial Offices are *impersonal*. Festal Offices may rank anywhere from a simple to a double of the first class. Ferial Offices are usually of simple rite, though some of them may be important enough to exclude occurring festal Offices of higher rite, e. g., Ash Wednesday excludes even doubles of the first class. Days within an octave are usually of semi-double rite, whereas double major is the ordinary rank of an octave-day.
+
+In the Ordo (or Directory) ferial and vigil Offices are indicated by the words: "*de ea*" (meaning: *de ea feria* or *vigilia*) or "*de eo*" (*Sabbato*). Sunday Offices, even though they are of the day and are marked "*de ea*" (*Dominica*), are, however, festal Offices, usually of semi-double (privileged)[^2] rank.
+
+[^2]: As a general rule a "common" Sunday yields only to feasts of a higher rite than *double major* (cf. n. 81).
+
+---
+
+## CHAPTER II
+
+## DIVISIONS OF THE BREVIARY
+
+**5.** The Breviary is ordinarily divided into four books,[^3] each corresponding, more or less, to the seasons of the year. Each volume is subdivided into the following important parts,[^4] with which students should become familiar at once.
+
+(a) The **ORDINARIUM**, which gives the general *layout* or *order* (as the word indicates) of the various parts of the Office. Let it be also said that the *invariable* parts of each Hour are to be found in the Ordinarium, and, in this, it resembles the "*Ordo Missæ*."
+
+(b) The **PSALTER**, which, as its name indicates, is the Breviary Psalm-book, containing, as it does, the different psalms for the various Hours of *each day of the week*.
+
+(c) The **PROPRIUM DE TEMPORE**, which contains the "*de tempore*" or *ferial* parts of Offices said throughout the year (or season, in the case of any particular "Pars"). This Proprium refers to the *days* in the different weeks of the season or year.
+
+[^3]: Pars Hiemalis; Pars Verna; Pars Aestiva; and Pars Autumnalis.
+[^4]: It is advisable for students to have their Breviary right under their eyes as they read and study these pages.
+
+(d) The **PROPRIUM SANCTORUM**, which gives the different feasts as attached to fixed *dates*, with the parts of the Office (e. g., the Oration) these feasts may have *proper*. For the parts for which they have not proper, recourse must be had to:
+
+(e) The **COMMUNE SANCTORUM**, which contains full Offices for the different feasts (e. g., of a Confessor), so that the parts necessary to complete the Office will be found here, if they are not already given in the Proprium. The *Commune*, then, is like a reserve which can be drawn upon when we have a deficit. If, for example, twenty (variable) parts are necessary to say a complete Office, and only eight are given in the Proprium, recourse will be had to the *Commune* for the missing twelve parts.
+
+It is easily seen how wise it is to look first in the Proprium before going to the *Commune* for parts that are reckoned missing.
+
+The Psalter and Ordinarium serve as *Commune* for the *Proprium* de Tempore.
+
+### The Hours
+
+**6.** The Hours of the Office are as follows:
+
+a) Matins and Lauds (reckoned as being one Hour);
+b) Prime;
+c) Terce;
+d) Sext;
+e) None;
+
+&nbsp;&nbsp;&nbsp;&nbsp;*(b–e called the "Little Hours")*
+
+f) Vespers;
+g) Compline.
+
+Matins and Lauds, though they must not be separated in choir, may be said separately in the private recitation of the Office.
+
+### Ordinary Beginning and Ending of the Hours
+
+**7.** By "*ordinary beginning*" of an Hour is meant:
+
+(a) Pater noster ("totum secreto") and Ave Maria.
+(b) Deus, in adjutorium meum intende. Domine, ad adjuvandum me festina.
+(c) Gloria Patri, et Filio, et Spiritui Sancto. Sicut erat in principio, et nunc et semper, et in sæcula sæculorum. Amen.
+(d) Alleluja (replaced by "Laus tibi, Domine, Rex æternæ gloriæ" from Compline of the Saturday before Septuagesima until Compline of Wednesday of Holy Week, inclusive).
+
+Whenever the *Pater noster* is supposed (referring to choir recitation) to be said "totum secreto,"[^5] *Amen* is added to it, otherwise not, even in the private reading of the Office, when, of course, everything is usually said with, at least, the required "vox secreta" (cf. n. 88).
+
+[^5]: The *Pater* is not recited "totum secreto" if, as in Choir, the Hebdomadarius says: "*Pater noster*," and (after a pause): "*Et ne nos inducas in tentationem*."
+
+**8.** By "*ordinary ending*" of an Hour is meant:
+
+(a) Benedicamus Dno:[^6] Deo gratias.
+(b) Fidelium animæ per misericordiam Dei requiescant in pace. Amen.
+(c) Pater noster, "totum secreto." This Pater is omitted if another Hour immediately follows.[^7]
+
+[^6]: *Dominus* may be contracted to *Dnus* in all its written cases.
+[^7]: In practice, the *Pater* is always said, if not as part of the "ordinary ending" at least as part of the "ordinary beginning" of the Hour immediately following.
+
+### Antiphons and Psalms
+
+**9.** Antiphons[^8] are ordinarily divided into two parts by means of an asterisk (\*). To say the first part of the antiphon as far as the asterisk is called "*announcing*" the antiphon; whereas, saying the *entire* antiphon is termed "*doubling*" it.
+
+When each psalm has its own individual antiphon, this antiphon is *always* said entire after (the *Gloria Patri* which ends up) the psalm, but before the psalm[^9] it is doubled only in Offices of the various
+
+[^8]: "Antiphons are short sentences, either extracted from Scripture or composed by the Church, calculated to excite piety or to show why such a psalm has found place in the Office. Formerly antiphons were repeated several times in the course of the psalm, as is still done with the psalm *Venite exsultemus*." (Vigourel, Syn. Man. of Liturgy, n. 96.)
+[^9]: The expressions: "doubling" and "announcing" refer only to the way of saying the antiphon before — not after — the psalm.
+
+double rites, and in the remaining Offices — whether semi-doubles or simples — it is merely announced.
+
+Matins, Lauds, and Vespers are the only Hours in which *each* psalm is accompanied by its own antiphon. The Little Hours and Compline have only *one* antiphon for *each set* (of three psalms), and this antiphon is *never* doubled.[^10]
+
+**10.** It sometimes happens that the antiphon (e. g., when "doubled"), or the part of it (e. g., when simply "announced") *which must be recited*[^11] before the psalm has the same wording as the *beginning* of the psalm following it. In this case the antiphon is said entire or in part — as the case may be — but the corresponding opening words of the psalm are omitted to avoid repetition. If the entire antiphon is the same as the beginning of the psalm, but, e. g., "Alleluja" has to be added to the antiphon on account of Paschal Time, then, since the antiphon and the beginning of the psalm are made different by the addition of this one word "Alleluja," the above rule does not hold good in this particular case, and the words of the antiphon are not omitted in the psalm. Consult, as a practical
+
+[^10]: There are, of course, exceptions to these rules, e. g., during Paschal Time the psalms of the different Hours have only one antiphon (Alleluja) to each set; and sometimes the Little Hours have no antiphon at all, e. g., during Easter week.
+[^11]: When the antiphon is only partly said (i. e., when merely "announced"), it does not matter whether the unrecited part of the antiphon continues to agree in wording with the psalm or not.
+
+example, the first psalm in the third nocturn of the *Commune Dedicationis Ecclesiæ*.
+
+The *Gloria Patri* (with *Sicut erat*) is added to the end of all psalms and canticles unless it is otherwise stated by particular Rubrics.
+
+### Hymns
+
+**11.** The *Doxology* (or last strophe) of hymns is liable to be replaced, in any Hour, by Doxologies proper to certain feasts of Our Lord and of the Blessed Virgin, e. g., the ordinary last strophe of the (invariable) hymn in Prime[^12] is:
+
+> Deo Patri sit gloria,
+> Ejusque soli Filio,
+> Cum Spiritu Paraclito,
+> Nunc, et per omne sæculum. Amen;
+
+but on feasts of the Blessed Virgin the conclusion of all hymns is (four iambic verses of eight syllables):
+
+> Jesu, tibi sit gloria,
+> Qui natus es de Virgine,
+> Cum Patre, et almo Spiritu,
+> In sempiterna sæcula. Amen.[^13]
+
+The *meter* of the hymns, however, must always be taken into account; thus, after the hymn of Christmas Day's first vespers, the following Rubric is given: "Sic terminantur omnes Hymni *ejusdem metri* usque ad Vigiliam Epiphaniæ inclusive."
+
+[^12]: The Little Hours and Compline have the same meter in the Hymns.
+[^13]: Cf. Rubric as written in the *Commune Festorum B. M. V.*, before Matins.
+
+### Varia
+
+**12. A.** "Deo Gratias" is added to the end of all *Capitula*.[^14]
+
+**B.** "*Tu autem, Dne, miserere nobis: Deo gratias*" is said after all Lessons, be they the ordinary Lessons (as at Matins) or the "*Lectiones breves*" (as at Prime and Compline).
+
+**C.** Subdeacons always say: "*Domine, exaudi orationem meam: Et clamor meus ad te veniat*," instead of: "*Dnus vobiscum: Et cum spiritu tuo*," at all the Hours; when a *Dne exaudi* already precedes a *Dnus vobiscum*, the former is not repeated.
+
+**D.** Each time the Breviary is opened to say a part of the day's Office the indulgenced prayer "*Aperi, Dne*" is commendably said. Before closing the Breviary it is likewise praiseworthy to recite the prayer "*Sacrosanctæ*," which, however, should be said kneeling, to obtain pardon of the faults committed during the recitation of the Office.[^15]
+
+The "*Aperi*" is found at the beginning, and the "*Sacrosanctæ*" at the end of the Ordinarium.
+
+[^14]: The *Capitulum* (meaning *Short Chapter*) is nothing else than a short extract from Scripture, accommodated to the Office recited.
+[^15]: For this it is also sufficient to say it once only, at the end of Compline, with the intention of obtaining the remission of all the faults committed during the entire Office. If Matins and Lauds are immediately added to Compline, it is sufficient to say the "Sacrosanctæ" after Lauds. All the privileges take effect when this prayer is not said kneeling, "infirmitatis tantum causa."
+
+---
+
+## CHAPTER III
+
+## MATINS OF NINE LESSONS
+
+**13.** The *scheme* of Matins is as follows:
+
+**I. INTRODUCTION.**
+
+*Irregular beginning.*
+
+a) Pater, Ave, Credo (as this is the *first* Hour).
+b) Dne, labia mea aperies: Et os meum annuntiabit laudem tuam. (This serves as an introductory prayer to the whole Office.)
+c) Deus, in adjutorium, etc.
+d) Gloria Patri with Sicut erat, etc.
+e) Alleluja (sometimes Laus tibi, Dne, etc.).
+
+*Preamble.*
+
+f) Invitatorium \* with psalm Venite exsultemus.
+g) Hymn \* (according to the Invitatorium).
+
+**II. THREE NOCTURNS,** *each* nocturn being composed of three psalms, three "links," and three Lessons, thus:
+
+a) *Three Psalms*, each psalm having its own antiphon.\*
+
+b) *Intervening parts* —
+
+- Versicle and Response \* (found after each set of three psalms).
+- Pater noster (without *Amen* after it).
+- Absolution (one for every three Lessons).
+
+c) *Three Lessons*,\* *each* of which is preceded by its own Benediction, as well as followed by "Tu autem, Dne, miserere nobis: Deo gratias" and a Responsorium.\*
+
+**14.** All the above parts marked with an asterisk \* are entirely variable. This method of indicating the variable parts of the Office will be used in all the plans.
+
+The *Credo* (Apostles' Creed) is said at the beginning of Matins and Prime only, as they are relatively important Hours, being first in their own groups.
+
+### The "Invitatorium" and Ps. "Venite Exsultemus"
+
+**15.** The *Invitatorium* is nothing else than an antiphon. The apparent difficulty arises from the way this antiphon is said with its invariable psalm. The simple rule for both is:
+
+Before the *first* verse of the *Venite*, the Invitatorium is said in full, twice. After the *uneven* (i. e., odd) verses it is said in full once, and after the *even* verses it is only *partly* recited, i. e., from the aster-
+
+isk \* to the end. When the psalm (with *Gloria Patri* and *Sicut erat*) has been thus recited, the Invitatorium is once more said in full.
+
+Let it be supposed, for example, that *abc\*def* represents the Invitatorium, and ABCDEF a (any) verse of the psalm, then they will be said as follows:
+
+```
+abcdef.
+abcdef.
+    ABCDEF.
+abcdef.
+    ABCDEF.
+        def.
+    ABCDEF.
+abcdef.
+    ABCDEF.
+        def.
+    ABCDEF.
+abcdef.
+    Gloria Patri....Sicut erat.
+        def.
+    abcdef.
+```
+
+### Versicle and Response
+
+**16.** The Versicle and Response are found immediately following the three psalms of which they form, so to say, an integral part. Not only do they vary with each set of three psalms, but they also vary for one and the same set, according to the different seasons of the year.[^16]
+
+[^16]: Cf., for example, *Pars Verna*, Sunday, at end of three psalms given for the first nocturn, or any *Pars*, at end of third nocturn psalms on week-days.
+
+### Absolutions and Benedictions
+
+**17.** The Absolutions and Benedictions are given in the *Ordinarium*, like all other invariable parts of the Office. Each set of three Lessons has one *Absolution*, but three *Benedictions*. Note that all the Benedictions are introduced by "*Jube, Domine* (or *Domne*, in choir), *benedicere*," and that they, as well as the Absolutions, have an "*Amen*" at the end.
+
+The *eighth* Benediction changes according to the Office recited, as will be better understood by a glance at the Ordinarium.
+
+More will be said further on to help the student understand better that, whilst the Absolutions are strictly invariable, the Benedictions are really accommodated to the Lessons they accompany (n. 24).
+
+### The Lessons
+
+**18. A.** The *first* nocturn Lessons are usually taken from the current day (ferial) in the *Proprium de Tempore*,[^17] and are called *Scripture occurring* Lessons[^18] (e. g., in the Ordo, "L. I. N. de Scr. occ." means: Lessons of the first nocturn from Scripture occurring).
+
+**B.** Those Lessons may be a *homily* on a given gospel or not. In the first case the Lessons can-
+
+[^17]: It usually gives only three Lessons numbered 1, 2, and 3. These are the very Lessons that would be used in ferial Offices, which have only three Lessons.
+[^18]: Lessons are read with the *title* (in black print) of the book from which they are taken.
+
+not be used as first nocturn Lessons, since, from their very composition, they belong to the third nocturn, being, as is supposed, a gospel with a homily (cf. D of this number). When the first three Lessons cannot be thus taken from the "*Proprium de Tempore*," they are sought for in the "*Commune Sanctorum*" if not already given in the "Proprium Sanctorum." Instances of this kind occur frequently during Lent. These facts should be noted, as more will have to be said about them later. — Cf. n. 19 (b).
+
+**C.** The Lessons of the *second* nocturn are generally found in the *Proprium Sanctorum* on feasts, and contain the life of the saint celebrated, being, therefore, known as *historical Lessons*.
+
+**D.** The Lessons of the *third* nocturn always contain a *homily on a gospel*, and directions are usually given in the "Proprium Sanctorum" that these Lessons are to be taken from the "Commune Sanctorum."
+
+**E.** This, then, is the ordinary arrangement for complete Offices, i. e., Offices of nine Lessons, to which any Office of, at least, semi-double rank is entitled. On *Sundays*, however, the entire nine Lessons, with their Responsoria, are ordinarily[^19] given right in the "Proprium de Tempore."
+
+[^19]: There are exceptions. Cf. the "De Tempore" Offices as found in the *Pars Aestiva* where, from the third Sunday after Pentecost to the end of the season, the usual order kept in the "Proprium de Tempore" is (wisely) disturbed. The following scheme of this irregularity may be first usefully given, before the place of the various Lessons is indicated:
+
+> *First Division.* From the third to the twelfth Sunday after Pentecost.
+>
+> a) *Sunday* Office — Lessons and Responsoria for the first and second nocturns only and also the Responsoria for the eighth and ninth Lessons.
+>
+> b) *Ferial* Office — Three Lessons (nn. 1, 2, 3) with their Responsoria.
+>
+> *Second Division.* From the first to the fifth week of August.
+>
+> The same as in the First Division.
+>
+> *Third Division.* For Sundays only, from the third to the fifteenth after Pentecost.
+>
+> a) Oration
+> b) Homily (i. e., Lessons 7, 8, 9).
+> c) Antiphons for the *Benedictus* and *Magnificat*.
+>
+> From this it is easily seen that, whilst the Lessons (and RR.) of the first and second nocturns may be taken from either the first or second division according to the Time of the year, the Lessons of the third nocturn are taken from the third division with the Responsoria for Lessons 8 and 9, found where the first and second nocturns were taken from.
+
+### Ninth Lesson from Another Office
+
+**19.** It sometimes happens that, when an Office of nine Lessons is said, a kind of commemoration is made of some occurring feast or ferial, by substituting for the *ninth* Lesson of the Office recited another taken from the occurring feast or ferial. There are, then, two cases:
+
+(a) *Ninth Lesson taken from an occurring feast of a saint;* this is done by reciting as ninth Lesson *all* the Lessons of the saint in question that give an account of his *life* (i. e., that are historical), uniting them, however, and saying them *per modum unius*.
+
+Since the account of a saint's life is usually given in the *second* nocturn, the Lessons sought for as commemoration will be in this nocturn, which itself will be found in the "Proprium Sanctorum."
+
+If these Lessons are not truly historical, they are not taken, e. g., if some or all of them are simply extracts from a sermon or treatise. If only one Lesson is historical, it alone is taken as *ninth* Lesson.[^20]
+
+(b) *Ninth Lesson taken from the homily of a Sunday or ferial;* in this case the ninth Lesson of the Office recited will be the *beginning* (all that is given) of the gospel of the Sunday or ferial (or vigil) in question, as well as the *first*[^21] of the *three* Lessons given as a homily on it.[^22] The ferials given in the "Proprium de Tempore" (Scripture occurring) with a gospel (i. e., the beginning of a gospel) and homily are generally major or more important ferials, e. g., the week-days of Lent. The *Benediction* used with the ninth Lesson in this case is: *Per evangelica dicta*, etc.
+
+The *Ordo* gives directions as to when these rules are to be applied.
+
+[^20]: If the Office recited be of a Sunday, it is supposed that there is no ninth Responsorium. When the ninth Lesson of a Sunday is replaced by some other Lesson, it may be omitted or joined to the eighth Lesson.
+[^21]: The three Lessons of a homily may also be said *per modum unius*.
+[^22]: In the Mass a kind of parallelism is found with regard to these rules, inasmuch as the Gospel of St. John, at the end of Mass, is also replaced by the gospel of an occurring Sunday, ferial, vigil, or feast (having a strictly proper gospel).
+
+### Responsoria
+
+**20.** The following examples of Responsoria are given, so that, by comparison, the student may be able to settle any difficulties concerning their recitation:
+
+(a) *First example:*
+
+*How written:*
+
+> ℟. Non auferetur sceptrum de Juda, et dux de femore ejus, donec veniat qui mittendus est: \* Et ipse erit expectatio Gentium. ℣. Pulchriores sunt oculi ejus vino, et dentes ejus lacte candidiores. Et.
+>
+> (Resp. IV Sunday Advent, Lesson 2.)
+
+*How said:*[^23]
+
+> Non auferetur sceptrum de Juda, et dux de femore ejus, donec veniat qui mittendus est: Et ipse erit expectatio Gentium. Pulchriores sunt oculi ejus vino, et dentes ejus lacte candidiores. *Et* ipse erit expectatio Gentium.[^24]
+
+(b) *Second example:*
+
+*How written:*
+
+> ℟. Me oportet minui, illum autem crescere: qui autem post me venit, ante me factus est: \* Cujus non sum dignus corrigiam calceamentorum solvere.
+>
+> ℣. Ego baptizavi vos aqua: ille autem baptiz-
+
+*How said:*
+
+> Me oportet minui, illum autem crescere: qui autem post me venit ante me factus est: Cujus non sum dignus corrigiam calceamentorum solvere. Ego baptizavi vos aqua: ille autem baptizabit vos Spiritu Sancto. *Cujus* non sum dignus corrigiam calceamentorum solvere. *Gloria Patri*, et Filio, et Spiritui Sancto.[^25] *Cujus* non sum dignus corrigiam calceamentorum solvere.
+
+(Loc. cit., Lesson 3.)
+
+(c) *Third example:*
+
+*How written:*
+
+> ℟. Virgo Israel, revertere ad civitates tuas: \* Usquequo dolens averteris? Generabis Dominum Salvatorem, oblationem novam in terra: \* Ambulabunt homines in salvationem. ℣. In caritate perpetua dilexi te: ideo attraxi te miserans tui. Usquequo. Gloria. Ambulabunt.
+>
+> (Loc. cit. Lesson 6.)
+
+*How said:*
+
+> Virgo Israel, revertere ad civitates tuas: Usquequo dolens averteris? Generabis Dominum Salvatorem, oblationem novam in terra: Ambulabunt homines in salvationem. In caritate perpetua dilexi te: ideo attraxi te miserans tui. *Usquequo* dolens averteris? Generabis Dominum Salvatorem, oblationem novam in terra. *Gloria Patri*, et Filio, et Spiritui Sancto. *Ambulabunt* homines in salvationem.[^26]
+
+[^25]: Never with *Sicut erat*, etc.
+[^26]: Practical rule: If the Responsorium has two asterisks, the part between both is said after the verse, and the rest after the *Gloria Patri* (S. R. C.).
+
+(d) *Fourth example:*
+
+*How written:*
+
+> ℟. Usquequo exaltabitur inimicus meus super me? \* Respice, et exaudi me, Domine, Deus meus. ℣. Qui tribulant me, exsultabunt si motus fuero: ego autem in misericordia tua sperabo. Respice. Usquequo.
+>
+> (Passion Sunday, Lesson 3.)
+
+*How said:*
+
+> Usquequo exaltabitur inimicus meus super me? Respice, et exaudi me, Domine, Deus meus. Qui tribulant me, exsultabunt si motus fuero: ego autem in misericordia tua sperabo. *Respice*, et exaudi me, Domine, Deus meus. *Usquequo* exaltabitur inimicus meus super me? Respice, et exaudi me, Domine, Deus meus.
+
+**21.** The ninth Lesson is not always followed by a Responsorium, but by the *Te Deum* on *all* feasts.[^27]
+
+*Gloria Patri* is added to the *last* Responsorium of each nocturn, so that if the *Te Deum* takes the place of the Responsorium after the ninth Lesson, the *Gloria Patri* in that case would be added to the Responsorium after the eighth Lesson, it being the last Responsorium of the nocturn.
+
+[^27]: As a general rule, when the *Te Deum* is recited at Matins, the *Gloria in excelsis* is said at Mass (not in a *Votive* Mass, which is nothing else than a Mass "*extra ordinem Officii*").— The Rubrics prescribe the recitation of Matins and Lauds before Mass, the first gospel of which is usually explained in the homily of Matins.
+
+### The Ending of Matins
+
+**22.** If Lauds is said immediately after Matins, the latter ends with either the ninth Responsorium or the *Te Deum*. If Lauds, however, is separated from Matins, the latter ends up with the Oration of the Office recited, preceded as well as followed by *Dominus vobiscum*, and then comes the "ordinary ending" (n. 8).
+
+---
+
+## CHAPTER IV
+
+## OFFICES OF THREE LESSONS
+
+**23.** Up to the present there has been question of Matins with nine Lessons, but on feasts of simple rite and on ferials (classed as being of simple rite) there are only three Lessons in Matins. The scheme is the same as that given for Matins of nine Lessons with the following important differences.
+
+The three sets of (three) psalms used in *full* Matins (i. e., of nine Lessons) are said, one immediately after the other, thus giving nine consecutive psalms with their antiphons (all taken from the current ferial in the Psalter). The Versicle and Response used after the ninth psalm are those given after the third set of psalms (the other Versicles and Responses — after the first and second sets of psalms — being entirely omitted). Next comes the usual *Pater noster*, followed by an Absolution which is taken according to given rules:[^28]
+
+[^28]: Since in full Matins three Absolutions and nine Benedictions are used, the question arises: which one Absolution and three Benedictions are to be taken for an Office having only three Lessons? Hence the rules given above, which resemble the method followed in the saying of the various mysteries of the Rosary on week-days.
+
+(a) On *Mondays* and *Thursdays* the Absolution used is that one said in the *first* nocturn of an Office of nine Lessons.
+
+(b) On *Tuesdays* and *Fridays* the Absolution is taken from the *second* nocturn.
+
+(c) On *Wednesdays* and *Saturdays* the Absolution is taken from the *third* nocturn.
+
+They are all found under their respective nocturns in the Ordinarium.
+
+**24.** The first and second rules given apply also to Benedictions for ferial Offices which have not a homily with a gospel as their three Lessons; but, as the third rule refers to the third nocturn, which always implies a homily and gospel, the Benedictions given for this nocturn[^29] will *always* be used on ferials with a homily and gospel, no matter what day of the week it may be.
+
+The Benedictions used for ferials[^30] occurring on Wednesdays and Saturdays are:
+
+1. Ille nos benedicat, qui sine fine vivit et regnat. Amen.[^31]
+2. Divinum auxilium maneat semper vobiscum. Amen.
+3. Ad societatem civium supernorum perducat nos Rex Angelorum. Amen.[^32]
+
+[^29]: Since there are three Benedictions given for the eighth Lesson alone, the one used in this case will be: *Divinum auxilium*, etc.
+[^30]: Other than those with a homily and gospel, for which the rule has just been given.
+[^31]: This Benediction *never* occurs in an Office of nine Lessons.
+[^32]: Note that these Benedictions are practically the same as those given for the third nocturn, excepting, of course, the first.
+
+The Benedictions used on *feasts* of three Lessons are:
+
+1. Ille nos, *as above*.
+2. Cujus (*vel* quorum *aut* quarum) festum colimus, ipse (*vel* ipsa *aut* ipsi *vel* ipsæ) intercedat (*vel* intercedant) pro nobis ad Dominum. Amen.
+3. Ad societatem,[^33] *as above*.
+
+These rules will not appear so difficult if studied hand-in-hand with the Ordinarium. In practice, it should be remembered that the Benedictions are more or less suited to the Lessons said, and, if the current day be taken into account, no trouble will be experienced by the student.
+
+**25.** In the "*Proprium de Tempore*," as was already stated, are found three Lessons, which, in themselves, make up the Lessons of ferial Offices. On feasts of simple rite, the first two of these ferial Lessons (with their Responsoria), and a third historical Lesson,[^34] found in the "*Proprium Sanctorum*," make up the required three Lessons to be recited on such feasts.[^35]
+
+The *Te Deum* is not said in ferial Matins except during Paschal Time, but it is always said on saints'
+
+[^33]: This Benediction, as may be noticed, is last in all cases.
+[^34]: If, on simples, there were three historical Lessons, there would be no means of reciting any Scripture occurring Lessons (which are, after all, a kind of *ferial* commemoration, when used in *festal* Offices).
+[^35]: Sometimes Matins are found having only three psalms and three Lessons, e. g., Easter week, but this is exceptional.
+
+feasts, and this fact implies that *Gloria Patri* will be added to the Responsorium following the second Lesson, i. e., to the last Responsorium of the nocturn.
+
+When separated from Lauds, Matins of three Lessons follows the rules already given for Offices of nine Lessons.
+
+---
+
+## CHAPTER V
+
+## LAUDS
+
+**26.** The *scheme* of Lauds is as follows:
+
+**I. "ORDINARY BEGINNING."**[^36]
+
+**II. BODY OF LAUDS.**
+
+a) *Five Psalms* \* with their antiphons \*
+b) Capitulum \*
+c) Hymn \*
+d) Versicle and Response \*
+e) *Benedictus* Canticle with its proper Antiphon \*
+f) (*Preces feriales*, if said).
+
+*Dominus vobiscum*
+
+g) Orations:
+&nbsp;&nbsp;&nbsp;&nbsp;1. Oration \* of Office recited.
+&nbsp;&nbsp;&nbsp;&nbsp;2. Commemorations according to AVO (n. 32).
+&nbsp;&nbsp;&nbsp;&nbsp;3. Suffragium (fixed commemoration) if said.
+
+*Dominus vobiscum*
+
+[^36]: If Lauds is said immediately after Matins, it will have the "ordinary beginning," minus, however, the introductory *Pater* and *Ave*.
+
+**III. "ORDINARY ENDING."**
+
+*Dominus det nobis suam pacem: et vitam eternam. Amen.*
+
+**IV. FINAL ANTIPHON**[^37] **OF THE BLESSED VIRGIN.**
+
+a) Hymn
+b) Versicle and Response
+c) Oration (with short conclusion)
+
+*Divinum auxilium maneat semper vobiscum. Amen.*
+
+[^37]: The word "antiphon" is not to be here taken in the sense of Scriptural extracts accompanying psalms. In many English works the word "anthem" will be found instead of the word "antiphon."
+
+### Preces Feriales
+
+**27.** *Preces feriales* may be said at every Hour except Matins alone. Since they are invariable,[^38] no explanations are required. They are found under the different Hours in the Ordinarium.
+
+The *Preces feriales* of Lauds and Vespers are exactly the same. Those of Terce, Sext, and None, though different from the preceding sets, are also the same, one with another. Those of Prime and Compline differ from each other, and from the sets already referred to.
+
+**28.** As their name indicates, the *Preces feriales* are said on *ferials*, not on all ferials, however, but only on those of a *penitential* character, e. g., ember-
+
+[^38]: When saying the *Preces* in the private recitation of the Office, note should be taken of the *Confiteor* given for such circumstances. So also whenever the Confiteor occurs.
+
+days and vigils generally. Whenever said at Lauds, they run through all the remaining Hours, unless Vespers be the first Vespers of a feast celebrated on the next day, in which case the *Preces feriales* cease at Vespers (exclusive).
+
+**29.** As a rule to be remembered, the *Preces* are recited immediately *before* the *Dominus vobiscum* that always precedes the Oration (fixed, as in Prime and Compline, or variable as in the other Hours) of any Hour. In fact, when examining the *Preces*, it will be noticed that their ending naturally leads on to: *Dominus vobiscum*, according to the usual formula of liturgical prayer.
+
+### Orations[^39]
+
+**30.** All Orations in the Office are preceded and followed by *Dominus vobiscum*. If two or more be said at the one time, e. g., in commemorations, *Dominus vobiscum* precedes the *first* Oration and follows the *last*, so that, in all cases, the Prayers intervene. Immediately before *each* Oration, "*Oremus*" is said,[^40] whether it be a question of commemorations or not (cf. *Rub. Generales*, tit. XXX., nn. 3 and 5).
+
+[^39]: By *Oratio* is meant any Oration that has some relation to the Office recited, whereas *Collecta* designates an Oration that has no connection with it.
+[^40]: What may be called the *secondary* Orations of Prime make exception to these remarks, but as the Orations referred to are invariable, no difficulty will be found in practice.— In the Mass *Oremus* is put before the first and second Orations only.
+
+On ferials that have no Oration proper that of the preceding Sunday is taken.[^41]
+
+### Conclusions of Orations
+
+**31.** There are different kinds of conclusions to Orations, according to whom the Prayer is addressed, or of whom mention has been made in it. The following verses show when one conclusion is used rather than another:
+
+> *Per Dominum* dicat, si Patrem quilibet orat.
+> Si Christum memores, *per eumdem* dicere debes.
+> Si loqueris Christo, *Qui vivis* scire memento;
+> *Qui tecum*, si sit collectæ finis in ipso;
+> Si memores Flamen, *ejusdem* dic prope finem.[^42]
+
+Each conclusion may be short (e. g., *Qui vivis et regnas in sæcula sæculorum*) or long, i. e., solemn (e. g., *Qui vivis et regnas cum Deo Patre in unitate Spiritus Sancti Deus, per omnia sæcula sæculorum*).
+
+In the Office (as well as at Mass) the *long conclusions* are always used, exceptions being noted. Each Oration has its conclusion, but when two or more Prayers are said at the one time, e. g., in commemorations, only the *first* and *last* Orations have conclusions. The last conclusion varies according to the last Prayer said, independently of the number of Orations that may have preceded it.[^43]
+
+[^41]: When Saturday's Vespers is used as the first Vespers of Sunday, the Oration of that Sunday is taken. Sometimes it is the only part taken from the Sunday.
+[^42]: Cf. *Rub. Generales*, tit. XXX, n. 4.
+[^43]: This applies also to the Orations of the Mass.
+
+### Commemorations
+
+**32.** Commemorations are made (in Lauds and Vespers only) of certain occurring feasts or ferials, the Offices of which cannot be recited for particular reasons stated in the Rubrics.
+
+*Three* parts are taken from the Office commemorated, by means of which parts the commemoration is made. These parts are represented by the mnemonic *AVO*, the explanation of which is as follows:
+
+(a) *A* means *Antiphon*, and refers to the antiphon that would have been said at the *Benedictus* (in Lauds — or the *Magnificat* in Vespers) of the Office commemorated were that Office said entire. This antiphon is *always* said in full (not merely "announced") when made use of in a commemoration, but if the Office to which it belongs were recited as a complete independent Office, then it may or may not be said entire — hence the asterisk (\*) dividing it into two parts — according to the same rules that have already been given (n. 9) for psalm antiphons.
+
+(b) *V* stands for *Versicle and Response*.[^44] Again, if the Office now commemorated were said as a complete independent Hour in itself, then the *V* in question would precede the *A* just referred to, whereas now (in a commemoration) it comes after that same *A*.
+
+(c) *O* means the *Oration* proper to the Office commemorated. This Oration is always preceded
+
+[^44]: In the Lauds or Vespers (as the case may be) of the Office to be commemorated.
+
+by *Oremus*, even though it be the third or fourth Prayer said (Rub. generales, tit. XXX, nn. 3 and 5).
+
+For *each* commemoration, parts corresponding to *AVO* are taken. Only the *first* and *last* Orations have conclusions, always long. Thus, if, say in today's Office, there are two commemorations, one of St. X., and another of St. Y., the order will be as follows:
+
+*Dominus vobiscum: Et cum spiritu tuo.*
+
+(1) Today's Office. — *Oremus.* Oration with long conclusion.
+
+(2) Office of St. X. —
+&nbsp;&nbsp;&nbsp;&nbsp;A: Antiphon at *Benedictus*, always said entire.
+&nbsp;&nbsp;&nbsp;&nbsp;V: Versicle and Response.
+&nbsp;&nbsp;&nbsp;&nbsp;O: Oration with "*Oremus*," but without conclusion.
+
+(3) Office of St. Y. —
+&nbsp;&nbsp;&nbsp;&nbsp;A: Ant. ad *Bened.*, always said entire.
+&nbsp;&nbsp;&nbsp;&nbsp;V: Versicle and Response.[^45]
+&nbsp;&nbsp;&nbsp;&nbsp;O: Oration with "*Oremus*," and long conclusion.
+
+*Dominus vobiscum: Et cum spiritu tuo.*
+
+**33.** The *Suffragium* (*de omnibus Sanctis*) is that invariable commemoration,[^46] found in the Ordinarium for Lauds and Vespers, at which Hours alone
+
+[^45]: It may happen that the versicle or antiphon of a commemoration is the same as an antiphon or versicle already said; in this case they must be changed according to given rules.
+[^46]: With parts corresponding to AVO.
+
+it is said. It is recited as a commemoration on semi-doubles and in Offices of lower rite, but not during octaves, or when commemoration of a simplified double (n. 4, note) has been just made. During Easter Time, this *Suffragium* is replaced by the *Commemoratio de Cruce*, as found in the Ordinarium.
+
+As may be noticed, the *Suffragium* corresponds to the "*Orationes communes*" used at Mass.
+
+### The Final Antiphon to the Blessed Virgin
+
+**34.** This antiphon is put between the two prayers: *Dominus det nobis*, etc., and *Divinum auxilium*, etc. It is said (as found at the end of the Ordinarium) after the "ordinary ending" of Lauds and Compline only — in the private recitation of the Office.
+
+Should any Little Hour or Hours be recited immediately after Lauds, the antiphon to the Blessed Virgin is said, not after Lauds, but at the end of the Hour or Hours so added. If the whole Office (i. e., from Matins to Compline inclusive) were said at the one time, the antiphon to the Blessed Virgin would be said *once*, at the end of Compline. The antiphon varies according to the season of the year, and its Oration always takes the short conclusion (cf. n. 31).
+
+### Lauds of the First and Second Schemes
+
+**35.** In looking through the *Psalter*, the student may have noticed the expressions: *Ad Laudes I.* and *Ad Laudes II.* This simply means that Lauds has *two* sets of five psalms with their antiphons.
+
+Lauds II., like the *Preces feriales*, is always used on *ferials of a penitential character*,[^47] e. g., on days of Advent and Lent. This is better understood from the fact that the first psalm in Lauds of the second scheme is *always* the *Miserere*. The ordinary psalms of Lauds (i. e., the "Ad Laudes I." set) are used on all other days.
+
+What is the difference between both sets? The only important difference is that the first psalm[^48] in Lauds I. becomes the *Miserere* in Lauds II., for example:
+
+*Lauds I. of Tuesday:*
+
+1. Cantate Domino (Ps. 95).
+2. Judica me.
+3. Deus misereatur nostri.
+4. (*Canticle*[^49] of Tobias).
+5. Laudate nomen Dni.
+
+*Lauds II. of Tuesday:*
+
+1. Miserere mei, Deus (Ps. 50).
+2. Judica me.
+3. Deus misereatur nostri.
+4. (Canticle of Ezechias).
+5. Laudate nomen Dni.
+
+**36.** The psalm in Lauds I., replaced by the *Miserere* in Lauds II., will not be omitted in the Office
+
+[^47]: The days for saying Lauds II. are not exactly the same as those on which the "*Preces feriales*" are recited, e. g., the Lauds II. psalms are said on ordinary *ferials* of Septuagesima week when there is no question of "*Preces feriales*."
+[^48]: The antiphons of both sets are all different.
+[^49]: In every Lauds this n. 4 is always a canticle, but, for practical purposes, it has been called a psalm in these pages.
+
+on that account. It is added to the ordinary three psalms of Prime, where, therefore, it is not surprising to find the following Rubric: "Quando ad Laudes dictus fuerit Psalmus 50. *Miserere*, hic subjungitur Psalmus 95. *Cantate Domino*, qui in Laudibus locum non habuit; secus vero, tribus Psalmis expletis, statim dicitur Antiphona."
+
+These explanations hold good for every day except Sunday. This exception will be understood by the following scheme:
+
+*Lauds I. of Sunday:*
+
+1. Dominus regnavit (Ps. 92).
+2. Jubilate Deo (Ps. 99).
+3. Deus, Deus meus.
+4. (Canticle of the Three Young Men.)
+5. Laudate Dominum.
+
+*Lauds II. of Sunday:*
+
+1. Miserere (Ps. 50).
+2. Confitemini Domino (Ps. 117).
+3. Deus, Deus meus.
+4. (Canticle[^50] of the Three Young Men.)
+5. Laudate Dominum.
+
+Now the ordinary Sunday psalms of Prime are:
+
+1. Confitemini Domino (Ps. 117).
+2. Beati immaculati.
+3. Retribue servo tuo.
+
+In comparing these schemes, therefore, it is found at Prime that, whereas the psalm *Confitemini* has already been said in Lauds II., the psalms *Dominus regnavit* and *Jubilate Deo* of Lauds I. have been omitted, since they were not said in Lauds II. The following Rubric, then, found *before* the Sunday
+
+[^50]: This canticle is *not* the same as the one referred to in Lauds I.
+
+psalms of Prime, will settle the question: "Ad Primam loco sequentis Psalmi 117. *Confitemini*, dicuntur Psalmi 92. *Dominus regnavit* et 99. *Jubilate*, qui in Laudibus locum non habuerint." Thus does the Church, for good reasons, avoid either the omission or the repetition of any psalm in the same Office.
+
+**37.** The explanations just given lead to an inquiry into the singular fact that, for the third nocturn of *Wednesday* — and for that nocturn alone — two sets of three psalms are given in the Psalter thus: "In III. Nocturno I.," and "In III. Nocturno II."
+
+On examining the first set of psalms it is found that the *Miserere* is one of them; but, if at Lauds the second scheme is used, it would mean a repetition of the *Miserere*. The Church, therefore, to avoid this, has given a second set of psalms to the nocturn in question (leaving unchanged its remaining two psalms), which second set of psalms is used on ferials requiring Lauds II.
+
+---
+
+## CHAPTER VI
+
+## THE LITTLE HOURS
+
+**38.** The *scheme* of the Little Hours is as follows:
+
+**I. INTRODUCTION.**
+
+a) "Ordinary beginning"
+b) Invariable hymn.[^51]
+
+**II. BODY OF EACH HOUR.**
+
+a) *Three Psalms* \* with one antiphon,\* never doubled
+b) Capitulum \* (*Deo Gratias*)
+c) Responsorium Breve \*
+d) *Preces* (if said).
+e) *Oration* \* (of Office recited, with "*Oremus*") preceded and followed by *Dominus vobiscum*.
+
+**III. "ORDINARY ENDING."**
+
+a) Benedicamus Domino
+b) Fidelium animæ
+c) Pater noster, "totum secreto" (if no other Hour follows).
+
+[^51]: At Terce, however, the usual hymn, "*Nunc, Sancte, nobis, Spiritus*," is replaced by the hymn "*Veni, Creator Spiritus*" on the feast of Pentecost and during its octave.
+
+**39.** Prime, although different from the other Little Hours, will be treated later, by contrast with them.
+
+The *one* antiphon accompanying the *three psalms* of the Little Hours (and Compline) is never doubled. The only Hours, in fact, having antiphons capable of being doubled are Matins, Lauds, and Vespers, all of which have also an antiphon to each psalm.[^52]
+
+### Responsorium Breve
+
+**40.** This is of peculiar construction, and will best be explained by an example:
+
+*How written:*
+
+> ℟. *br.* Ipse liberavit me \* De laqueo venantium. Ipse.
+>
+> ℣. Et a verbo aspero. De laqueo. Gloria Patri. Ipse.
+
+*How said:*
+
+> Ipse liberavit me, de laqueo venantium. *Ipse* liberavit me, de laqueo venantium. Et a verbo aspero: *de laqueo* venantium. *Gloria Patri*, et Filio, et Spiritui Sancto. Ipse liberavit me, de laqueo venantium.
+
+℣. Scapulis suis obumbrabit tibi.
+℟. Et sub pennis ejus sperabis.
+
+(*Ordinarium*, at Terce, *Temp. Quad.*)
+
+**41.** Every *Responsorium breve* is preceded by a Capitulum. Remarks concerning *Preces feriales*
+
+[^52]: During Paschal Time, however, there is usually only one (*Alleluiatic*) antiphon for a set of psalms, but this antiphon can be doubled at Matins, Lauds, and Vespers.
+
+— which are always found in the Ordinarium — have already been made (27 f.).
+
+### Prime in Particular
+
+**42.** Prime follows the general scheme given for the Little Hours (n. 38) as far as the *Benedicamus Domino* of the "ordinary ending" inclusive. It then branches off, becoming an entirely different Hour.
+
+Note, however, the following points.
+
+(a) The *Credo* ("symbolum Apostolorum") is added to the *Pater* and *Ave* of the "ordinary beginning."
+
+(b) The Capitula of Prime are invariable. There is one for feasts ("*Regi sæculorum*"), and another ("*Pacem et veritatem*") for ferials.
+
+(c) The "*Responsorium breve*[^53] and the Oration of Prime are also invariable, whereas, in the other Little Hours, all these parts change with the Office recited. It may not be amiss to state again that *invariable* parts of the Office are found in the *Ordinarium*.
+
+The remaining "branching-off" part of Prime, being invariable, will cause no difficulty, as all that is to be done consists simply in reciting it as it is written in the Ordinarium. There is, nevertheless,
+
+[^53]: The verse "*Qui sedes ad dexteram Patris*," however, changes from time to time. The change is usually indicated after Lauds in the Proper of the Office that entails it, e. g., after Lauds given in the *Proprium Sanctorum* for the feast of the Transfiguration (Aug. 6th), directions are given to change the verse referred to, into "*Qui apparuisti hodie*."
+
+one particular part (near the end of the Hour) which, being variable, requires special attention. That part is:
+
+### The "Lectio Brevis"
+
+**43.** Like other Lessons, the *Lectio brevis* is preceded by a Benediction (invariable at Prime) and followed by "*Tu, autem, Domine*," etc., (12, B).
+
+The rule for finding the *Lectio brevis* at Prime is:
+
+(a) On *feasts* it is the same as the *Capitulum of None* in the Office recited. This Capitulum, when used as such, takes *Deo gratias* after it, but, as a Lesson it ends with "*Tu, autem, Domine*," etc.
+
+(b) On *Sundays* and *ferials* it is found in its proper place in the Ordinarium, or sometimes in the Psalter.
+
+In a word, it may be said that Prime is invariable, excepting the psalms and the *Lectio brevis*.
+
+### Preces Dominicales
+
+**44.** Every Hour except Matins has *Preces feriales*, but Prime and Compline alone have an additional set of prayers called *Preces Dominicales*,[^54] which, indeed, are very similar to the former. Their place in the scheme of the Office is the same as that of the *Preces feriales* (n. 29), and they are recited, as a general rule, in Prime, when the Suf-
+
+[^54]: The *Preces dominicales* in Prime are simply part of the *Preces feriales*. In Compline both are the same.
+
+fragium has been said at Lauds; and in Compline, when the Suffragium has been said at Vespers.[^55]
+
+### The Psalms of Prime
+
+**45.** Each of the Little Hours has three psalms accompanied by one antiphon which is simply announced before the first psalm and said entire after the last one, according to the general rules already stated. Now, Prime is the only Little Hour that may have four psalms. This fact has already been explained when treating of Lauds of the second scheme (n. 35), where it was said that the first psalm of Lauds I. (replaced by the *Miserere* in Lauds II.) is made the fourth psalm of Prime, when Lauds of the second scheme is used in the Office.[^56]
+
+**46.** Sometimes the *Athanasian Creed* ("Quicumque") is likewise added, *per modum Psalmi*, to the ordinary three psalms of *Sunday* Prime. This is usually the case on the *Sundays after the Epiphany and Pentecost*, whenever the Sunday Office is said without a commemoration (in Lauds) of either a double or an octave. It is also recited on the feast of the Blessed Trinity. The Athanasian Creed is found after the Sunday psalms of Prime in the Psalter.
+
+There is another psalm in *Sunday* Prime, viz., the
+
+[^55]: The *Preces feriales* and *dominicales* cannot both be said at the same Hour.
+[^56]: On Sundays, however, the additional psalms taken from Lauds are said before the psalms of Prime, not after them.
+
+*Deus, in nomine tuo salvum me fac*, which will be treated of later on (n. 59).
+
+### Ending of Prime
+
+**47.** Prime (like Compline) ends with a "*Benedictio*," to which a *Pater noster* is added unless another Hour immediately follows.
+
+---
+
+## CHAPTER VII
+
+## VESPERS
+
+**48.** The *scheme* of Vespers is the same as that of Lauds as far as the "ordinary ending" inclusive (n. 26). The canticle *Benedictus* of Lauds is, of course, replaced by the canticle *Magnificat* at Vespers. This difference being indicated, it must also be stated that what has been said in Lauds regarding *Preces feriales* and commemorations[^57] (including the *Suffragium*) holds good for Vespers also.
+
+[^57]: Commemoration of an octave is taken from the feast's first Vespers if the Office of the octave is said on the following day. In other cases the commemoration is taken from the second Vespers of the feast itself.
+
+### First and Second Vespers
+
+**49.** What is meant by Lauds I. and Lauds II. is entirely different from what is understood by I. and II. Vespers, as will be readily understood by the following explanation.
+
+*First* Vespers of a feast means a set of Vespers to be said on the day *preceding* the feast, whereas *Second* Vespers always refers to (another set of) Vespers as recited on the very day of the feast itself, e. g., to-day at Vespers it is a question of the second Vespers of the feast celebrated to-day, and of the first Vespers of the feast that is to be celebrated to-morrow.
+
+**50.** Now, all feasts of semi-double rank,[^58] or higher, have first and second Vespers, and it therefore very often occurs that, on a given day, account must be taken of the second Vespers of that day and the first Vespers of the following day. The question naturally suggests itself: Are both sets[^59] of Vespers said? This will be answered by taking the following examples as general principles.
+
+(a) Supposing the Office recited *to-day* is relatively important (e. g., a double), and the Office of to-morrow[^60] is of lower rank (e. g., a semi-double), then to-day's Vespers (i. e., second Vespers) will be said with a commemoration of to-morrow's (first) Vespers. In this case, to-morrow's Vespers is called "*sequens*" (Officium) in relation to to-day's. Thus, to-day we would find written in the Ordo: *In. Vesp. com. seq.*, meaning: in to-day's Vespers, a commemoration of to-morrow's (first) Vespers will be made.
+
+(b) If to-day's Office is of minor importance (e. g., a semi-double), and to-morrow's is of higher rite (e. g., a double), then the first Vespers of to-morrow's
+
+[^58]: Simples have no second Vespers. Ferials have second Vespers only. Vigils have no Vespers. The Offices, as found in the Breviary, begin with first Vespers.
+[^59]: On All Saints' Day two sets of Vespers are said, viz., Vespers of All Saints and Vespers of the Dead. The reason of this is obviously the entirely different character of both Vespers.
+[^60]: Sometimes, on very important feasts, no commemoration is made of "the following," and *vice versa*.
+
+Office will be said to-day, with a commemoration of to-day's (second) Vespers. In this case, to-day's Vespers is called "*Præcedens*" (Officium) in relation to to-morrow's first Vespers recited to-day. Thus, to-day we would find written in the Ordo: *Vesp. de seq. com. præc.*, meaning: The Vespers recited to-day is to-morrow's first Vespers, with a commemoration of to-day's (second) Vespers.
+
+(c) If to-day's Office is of equal importance with to-morrow's (e. g., both are doubles), then the first half of to-day's (second) Vespers will be said, followed by the second half of to-morrow's (first) Vespers. Where are Vespers halved? The bisection, so to say, is made between the antiphon after the last (i. e., fifth) psalm and the Capitulum following it. Thus to-day we would find written in the Ordo: *Vesp. a cap. de seq. com. præc.*, meaning that to-day's second Vespers will be said as far as the Capitulum exclusive, from which part (inclusive), to-morrow's first Vespers will begin, to form thus a complete set of Vespers with a commemoration of to-day's second Vespers, which is regarded as not having been said, since some of its very important parts were omitted.[^61]
+
+**51.** In conclusion, then, it may be easily understood how, on one and the same day, the Office may,
+
+[^61]: The ordinary Sunday's first Vespers is that found in the Psalter for Saturday. The current "Sabbato" in the *Proprium de Tempore* should, however, be first consulted, so that nothing be taken from the Psalter which is given as proper in the *Proprium de Temp.* The *Oration* used is always that of the next day.
+
+for example, be ferial and festal: *ferial* (even with *Preces*, etc.) until None inclusive, and *festal* from Vespers on, because of some feast celebrated the following day.[^62]
+
+[^62]: When two or more feasts fall on the same day there is said to be *occurrence* of Offices, but when the Office of a given day comes into conflict with the Office of the following day at Vespers, that is called *concurrence* (always referring, therefore, to the meeting of one day's second Vespers with the first Vespers of the next day).
+
+---
+
+## CHAPTER VIII
+
+## COMPLINE
+
+**52.** Compline is a very irregular Hour, but, being practically invariable, it is one of the easiest to recite, and the best rule to give is: "Say Compline as it is written in the Ordinarium," paying attention, however, to the following points.
+
+(a) Compline begins "*absolute*," i. e., without the usual introductory preamble.
+
+(b) Compline has a set of *Preces* used either as *feriales* or *dominicales*, according to principles already given.
+
+(c) Compline, like the Little Hours, has three variable psalms accompanied by one antiphon which is *never* doubled.
+
+(d) Compline, like Prime, ends with a "*Benedictio*," after which the Final Antiphon to the Blessed Virgin (according to the Time of the year) is *immediately* recited, without being preceded by a *Pater noster* or the prayer: "Dominus det nobis suam pacem: Et vitam æternam. Amen." (Cf. n. 26.)
+
+(e) As an appropriate ending to the day's Office, the *Pater*, *Ave*, and *Credo* are recited after the antiphon to the Blessed Virgin following Compline.
+
+Should the Matins of the next day's Office be said immediately after Compline, then the *Pater*, *Ave*, and *Credo* must be recited again as the beginning of a new Office.
+
+---
+
+## CHAPTER IX
+
+## WHERE THE DIFFERENT PARTS OF THE OFFICE ARE TO BE FOUND
+
+**53.** It may be here again observed that each *Proprium* has its *Commune*; thus, the *Proprium Sanctorum* has the *Commune Sanctorum*, and the *Proprium de Tempore* has as its "Commune" the Ordinarium and Psalter. The object of a *Commune* is to supply parts that are missing in the Proprium[^63] (cf. n. 5).
+
+**54.** Starting off with general principles, it may be well to state that *invariable* parts of the Office (not marked with an asterisk \* in the schemes) are found in the Ordinarium, which resembles, in this, the Ordo Missæ. Likewise, the psalms and antiphons at the various Hours of each Office are taken from the current day in the Psalter. This method holds good for all the ordinary feasts[^64] as well as for ferials, and is sometimes referred to as the *modus ordinarius* recitation of the Office.[^65]
+
+[^63]: The *Proprium* should always be looked at first, so that parts therein contained will not be taken from the *Commune*.
+[^64]: Those not included in the *modus solemnis* (n. 57).
+[^65]: When looking for the parts of any Office, a little reasoning should be done on words like *ferial*, *festal*, etc. Who, when looking for parts of a *ferial* Office, will think of, and, still less, scrutinize the *Proprium* or *Commune Sanctorum*? Who would think of looking for *Lessons* in the Psalter? Strange mistakes are, nevertheless, sometimes made.
+
+**55.** It being taken for granted that the foregoing remarks are borne in mind, the following directions will hold good for all the Hours of the ordinary Offices (exceptions being noted later):
+
+(a) *On feasts:*
+
+1. *Of nine Lessons:* Everything is found in the *Proprium*[^66] and *Commune Sanctorum*, excepting the Lessons and Responsoria of the first nocturn, which are taken from *Scripture occurring* (Prop. de Temp.).
+
+2. *Of three Lessons:* Same rule except that the first two Lessons are usually taken from Scripture occurring.
+
+(b) *On ferials and Sundays:* everything is found in the *Proprium de Tempore*,[^67] Psalter,[^68] and Ordinarium.[^69]
+
+[^66]: The *Proprium* gives, at least, the Oration, the Lessons, and Responsoria of the second nocturn, with directions where to find the Lessons and Responsoria of the third nocturn (e. g., June 6th).
+[^67]: This *Proprium* usually gives three Lessons (with their Responsoria), and, on Saturdays, a special *Ant. ad. Magnificat.*— The Oration will be that of the preceding Sunday if there is none proper. On Saturdays, however, the Oration is taken from the following Sunday, at Vespers only.
+[^68]: The Psalter very often repeats for convenience what is already contained in the Ordinarium.
+[^69]: Note that the various Hours in the Ordinarium give different parts according to different ecclesiastical *Tempora* (*Tempus Quadragesimæ*, *Passionis*, etc.). Cf. *Pars Verna*, Prime.
+
+### The Office on Important Feasts
+
+**56.** There are a number of special feasts (n. 57) on which the Office is not said according to the foregoing rules (i. e., *modo ordinario*), but according to a special procedure, termed *modus solemnis*, which means:
+
+(a) That the psalms, with their antiphons, at Matins and Vespers are found in the feast (Prop. or Comm.). So also are all the remaining parts of the Office, except those usually found as invariable in the Ordinarium.
+
+(b) That the psalms (*not* antiphons, except for Compline) for Lauds, the Little Hours, and Compline, are taken from *Sunday* in the Psalter, no matter what day of the week it may be.
+
+In a word: on *modus solemnis* feasts everything is found in the *Proprium* (and *Commune*) excepting the *psalms* at Lauds, the Little Hours, and Compline, which are taken from the corresponding Hour of Sunday in the Psalter (cf. n. 59).
+
+**57.** What Offices are being referred to as recited *modo solemni*? They are (in general):
+
+1. Feasts (of nine Lessons) of Our Lord, the Blessed Virgin, the Angels, St. John the Baptist, St. Joseph, the Apostles, the Evangelists,[^70] and a few other days.[^71]
+
+[^70]: The numeration is according to the *Litany of the Saints*, as found at the end of any volume of the Breviary.
+[^71]: For example, Vigils of Christmas and the Epiphany, and on the Sundays within the octaves of certain feasts (e. g., the Epiphany). This will be noted in the Ordo.
+
+2. Days within *privileged* octaves[^72] (n. 64).
+3. Doubles of the first and second class.[^73]
+
+**58.** Where are the *Antiphons* for Lauds and the Little Hours taken from?
+
+They are found in the *Proprium* of the feast itself, e. g., on looking up the feast of the Epiphany[^74] there are found after Matins five antiphons under the heading: *Ad Laudes et per Horas*,[^75] which means that the antiphons there given will be used with the psalms taken from (Lauds I. of) Sunday in the Psalter, and that they will be also used (though simply announced) with the psalms of the Sunday Little Hours, as follows:
+
+1. At *Prime*, the *first* antiphon of Lauds is taken.
+
+[^72]: During ordinary octaves, as well as on octave-days, the psalms (with antiphons and the versicles of the nocturns) are taken from the current day in the Psalter; the remainder is said as found in the feast itself, excepting the Lessons and Responsoria of the first nocturn, which are taken from *Scripture occurring*, and the Lessons and Responsoria of the second and third nocturns, which are found proper (under the respective days within the octave). It is, therefore, seen that octaves fall under the ordinary rules, as already given, if the feast itself be considered as the *Commune*.
+[^73]: It sometimes happens that a feast may be only of double major rite and still be entitled to *modus solemnis* recitation for another reason, e. g., *St. John* (Apostle) *before the Latin gate* (May 6th), double major.
+[^74]: In the *Pars Hiemalis* some feasts attached to *dates* are found, not in the *Proprium Sanctorum*, as would be expected, but in the *Proprium de Tempore*, e. g., the Epiphany (January 6th), St. Thomas of Canterbury, etc. This, of course, is an exception to the general rule.
+[^75]: On some *ordinary* feasts (e. g., St. Lucy, Dec. 13th) special antiphons are given for some of the Hours (e. g., 5 Antt. "Ad Laudes" only) which entail the *modus solemnis* recitation *for those Hours only*.
+
+2. At *Terce*, the *second* antiphon.
+3. At *Sext*, the *third* antiphon.
+4. At *None*, the *fifth* (the fourth being entirely omitted).
+
+The antiphon accompanying the three psalms of Sunday Compline is never changed, whether the psalms be used as Sunday psalms or as *modus solemnis* psalms.
+
+**59.** When the psalms of Sunday Prime are said in an ordinary Sunday Office, they are:
+
+1. Confitemini Domino.
+2. Beati immaculati.
+3. Retribue servo tuo.
+
+Now, when these same psalms are to be said on a feast entitled to *modus solemnis* recitation (n. 57), the first one, viz., *Confitemini*, is replaced by psalm *Deus, in nomine tuo* (which is much shorter and more accommodated to important feasts), even if one of the feasts in question be celebrated on a Sunday.
+
+What is, therefore, meant by the following Rubric, usually given after Lauds on the above feasts, will now be clearly understood: "*Ad Horas Psalmi de Dominica, ad Primam tamen ut in Festis.*"
+
+In a word, then, the Sunday psalms as found in the Psalter for all the Hours except Matins and Vespers are both *dominical* (i. e., for Sunday use) and *festal* (i. e., for use on above mentioned important feasts).
+
+Whenever the *entire* Vespers (or, at least, first Vesp. *a cap.*) preceding Compline is recited *modo solemni* then Compline itself takes its three psalms, with their one antiphon, from Sunday in the Psalter; this is what is meant by saying: "Compline follows Vespers," inasmuch as if Vespers is *modo solemni*, Compline also will be.
+
+In the preceding chapters several remarks have been made regarding the finding of different parts of the Office in particular.
+
+Note that in the hymn *ISTE CONFESSOR*, the third verse "*Meruit beatas scandere sedes*" is changed to "*Meruit supremos laudis honores*" when the letters *m. t. v.* (*mutatur tertius versus*) are found in the Ordo or in the *Proprium Sanctorum*. This change occurs when the feast of a confessor is not celebrated on the day (i. e., anniversary) of his death.[^76]
+
+[^76]: "The 'birthday' (*dies natalis*) of a saint is the day of his death, which is the day of his birth to everlasting life. The *quasi-birthday* (*dies quasi-natalis*) is the day appointed for the feast of the saint, when his 'birthday' is occupied by another feast."—Vigourel, *Manual of Liturgy*, n. 109 (note).
+
+---
+
+## CHAPTER X
+
+## USEFUL ADDITIONS
+
+### Translation of Feasts
+
+**60.** In order that a feast be capable of being transferred, it must be, at least, a double of the second class. Translation takes place on account of the fact that the celebration of a feast may be hindered by an occurring feast of higher rank.
+
+### Major Sundays[^77]
+
+**61.** Major Sundays are divided into two classes:
+
+a) *Sundays of the First Class:*
+
+> First Sunday of Advent
+> First Sunday of Lent
+> Second Sunday of Lent
+> Third Sunday of Lent
+> Fourth Sunday of Lent
+> Passion Sunday
+> Palm Sunday
+> Easter Sunday
+> Low Sunday
+> Pentecost Sunday
+
+[^77]: The other Sundays are termed *minor* or *common* Sundays. The rite of Sundays is usually semi-double, though they may be of sufficient relative importance to exclude even double of the first class feasts, as may be readily understood from the above rubrical statements. As a general rule, common Sundays yield only to doubles of first or second class.
+
+which, in occurrence, be it accidental or not, are preferred to any feasts whatsoever.
+
+b) *Sundays of the Second Class:*
+
+> Second Sunday of Advent
+> Third Sunday of Advent
+> Fourth Sunday of Advent
+> Septuagesima Sunday
+> Sexagesima Sunday
+> Quinquagesima Sunday
+
+which, in accidental occurrence, are preferred to all feasts except doubles of the first class.
+
+### Major Ferials
+
+**62.** Major ferials are likewise divided into two classes:
+
+a) *Privileged Ferials:*
+
+> Ash Wednesday
+> Monday of Holy Week
+> Tuesday of Holy Week
+> Wednesday of Holy Week
+
+which, in occurrence, are preferred to any feasts whatever.
+
+b) *Non-privileged Major Ferials:*
+
+> Ferials of Advent
+> Ferials of Lent
+> Ember-days of September[^78]
+> Rogation Monday
+
+[^78]: The ember-days are committed to memory by means of the verse: "*Post Lent, post Pent, post Cruci, post Luci*," meaning that ember-days occur within the week after the first Sunday of Lent and Pentecost Sunday, and on the Wednesday, Friday, and Saturday following both the feast of the Exaltation of the *Holy Cross* (Sept. 14th) and that of St. Lucy (Dec. 13th). From this it will be seen that all the ember-days, except those of September, are already equal to *major ferials* for one reason or another, e. g., the ember-days after the first Sunday of Lent are *major ferials* from the fact that they are ferials of Lent, as above.
+
+which, in occurrence, are preferred only to feasts of simple rite.
+
+### Privileged Vigils
+
+**63.** Privileged vigils are also divided into two classes:
+
+a) *Vigils of the First Class:*
+
+> Vigil of Christmas
+> Vigil of Pentecost
+
+which, in occurrence, are preferred to any feast whatsoever.
+
+(b) *Vigil of the Second Class:* Vigil of the Epiphany, which, in occurrence, is preferred to any feast whatsoever, excepting doubles of first or second class and feasts of Our Lord.
+
+### Octaves
+
+**64.** Some feasts have *privileged octaves*, of which the Office is said, or, at least, commemorated; others have *common octaves*, the commemoration of which may also be sometimes omitted, according to the Rubrics; others, again, have *simple octaves*, of which nothing is said except on the octave-day.
+
+a) *Privileged Octaves:*
+
+of the *first* order: Octave of Easter, Octave of Pentecost
+
+of the *second* order: Octave of the Epiphany, Octave of Corpus Christi
+
+of the *third* order: Octave of Christmas, Octave of the Ascension
+
+Those of the *first* order are, in occurrence, preferred to any feasts whatsoever. Those of the *second* order are, on days within the octave, preferred to any feasts whatsoever, except to doubles of the first class, but on the octave-day they are also preferred to doubles of the first class that are not of the Universal Church. Those of the *third* order are, in occurrence, preferred only to the same feasts as those to which common octaves are preferred.
+
+(b) *Common Octaves:* Those of other doubles of the first class. These octaves are preferred, during the octave, only to Offices of simple rite, and, on the octave-day, to all doubles that are not of the first or second class.
+
+(c) *Simple Octaves:* Those of doubles of the second class. These octaves, on the octave-day, are preferred to feasts of simple rite and to the Office of *S. Maria in Sabbato*.
+
+### When the Hours are to be Said
+
+**65.** It must be first noted that the time fixed for the saying of any day's complete Office is "*ad definiendam obligationem*," and it is, therefore, necessary that the full Office of any day should be recited before the midnight[^79] closing that day.
+
+[^79]: Can. 33 of the New Code says that in the private recitation of the Breviary, any time (local, true or mean time — legal, regional or extraordinary time) may be followed.
+
+(a) As regards the time when the Office of any particular day may begin, it may be said that Matins and Lauds may be privately anticipated after two o'clock in the afternoon[^80] of the day preceding that to which the Office is attached. According to the Rubrics of the Missal, Matins and Lauds are to be said before celebrating Mass, but, although this obligation is *sub levi* — cfr. Append., n. 5, (c) — any reasonable cause will excuse. It is likewise prescribed *sub veniali* that Matins, Lauds, Prime, and Terce be recited before mid-day,[^81] unless there be a legitimate reason for not doing so, e. g., greater devotion, better time for study, etc.
+
+(b) Vespers is to be said in the afternoon. In the private recitation of the Office, from the first Saturday in Lent till Easter, Vespers (not Compline) may also be said before noon.[^82]
+
+(c) Compline is always said in the afternoon.[^83] The regular order of the Hours may be inverted, provided there be a legitimate cause for doing so,
+
+[^80]: Matins and Lauds may be anticipated at one o'clock P. M. by members of the "*Priests' Eucharistic League*."
+[^81]: "The proper time for Little Hours is between six o'clock A. M. and eight o'clock P. M. It is customary to recite them privately in the forenoon."— Vigourel, *Man. of Liturgy*.
+[^82]: At the time it is customary to say them in choir (after the conventual Mass and None). On Sundays, Vespers may not be anticipated.
+[^83]: In order to anticipate or postpone (within the natural day) any of the Hours, all that is required is a good reason, e. g., greater devotion, better time to study, and the like.
+
+e. g., the invitation of a friend to say Matins and Lauds with him, when some of the preceding Hours have not yet been said by the person invited.
+
+(d) May an Hour be *INTERRUPTED*? Not without venial sin, the gravity of which is determined by the duration of the interruption. There is no sin, however, if there is found sufficient reason (of necessity, utility, or charity) for the interruption, and in such cases it is not necessary to repeat the part of the Hour already said.
+
+Matins and Lauds may always be separated as if both formed two distinct Hours. The nocturns may likewise be recited separately, and without any reason, provided the duration of the interruption does not extend beyond three hours, and even longer, if there exists a just cause.
+
+### One Office Instead of Another
+
+**66.** When the Bishop publishes an *ORDO*, diocesan priests[^84] are bound to conform to it, even when the contrary of what is prescribed therein appears certain; uniformity comes before all other considerations. In details, however, manifest mistakes may be corrected, e. g., in the case of a commemoration added or omitted.
+
+(a) Beneficiaries and Canons, when absent, are held to the Office of their church. The parish priest and his assistants are likewise held to the Office
+
+[^84]: In these pages no remarks are given regarding Religious Orders having special Calendars. Let it be said, however, that Tertiary Priests may follow the Breviary of the Order.
+
+of their church. Simple priests, and those who are not strictly attached to the service of a church, are at liberty to choose between the Office of their own diocese and that of the diocese in which they happen to be.
+
+(b) If some one, through inadvertence, says one Office for another, the principle: "*officium pro Officio valet*" holds good,[^85] even if the mistake is seen in time to say the Office of the day also.[^86] When, however, the Office thus taken is much shorter than that which should have been said, it would be well — though not necessary — to recite, by way of compensation, a part of the Office omitted. Moreover, it must be here stated that if the mistake is detected before finishing the Office, the person in question must continue the Office of the day from where he is, according to the rule: "*Error corrigitur ubi deprehenditur*."
+
+(c) Knowingly to *CHANGE THE OFFICE* of the day for another nearly equal to it is no fault at all, if it rarely occurs (three or four times a year), and there is a reasonable cause, e. g., a special devotion, or charity. If, however, this is *often* done, and without a just cause, not more than a venial sin is committed (provided contempt be excluded), since
+
+[^85]: He is also free to recite the Office omitted that day on which the Office he actually said occurs, or the Office of the day.
+[^86]: "*Officium pro Officio* valide recitatur ex errore involuntario, sed probabilius *error corrigi debet ubi deprehenditur*." Tanquerey-Quévastre, *Brev. Syn. Theol. Moralis* (1918), n. 706.
+
+the Church, in this law, has regard to the quantity rather than to the quality of the Office.
+
+**67.** It is generally held that the omission of a Little Hour, or of what would be equal to a Little Hour, constitutes sufficient matter for a mortal sin. The omission of Vespers on Holy Saturday would, nevertheless, be only a venial sin on account of its shortness. He who omits one whole day's Office is guilty of only one mortal sin. (*Ita probabilius.*)
+
+**68.** In reading the Office the *PRONUNCIATION* must be *distinct* and *articulate*. The words must be *vocally* pronounced, not merely followed with the eyes without motion of the vocal organs. But it is not necessary for the reader to pronounce the words so that he himself may hear them. That hissing recitation of the Office, so common, should be avoided, both as being unnecessary and unpleasant to those who may be nearby. When a person recites his Office with a companion,[^87] each one says his part, and it is sufficient to listen to him, without saying a word, whilst he reads a verse or a Lesson. One should not begin to read his part until the other has completely finished his.
+
+**69.** The Office may be recited in any place and
+
+[^87]: Whenever the *Confiteor* in the Office is said privately, even with a companion, it is said only *once*, and the words *Tibi pater*, *Vobis fratres*, and the like, are omitted. In that case, too, "*Misereatur nostri*," etc., is said instead of what would otherwise have to be recited. These directions are found in their proper place in the Ordinarium. If several say the Office privately together, the Confiteor is alternately recited as in Choir.
+
+in any position[^88] that exclude distractions or irreverence.
+
+### Ceremonies
+
+**70.** No ceremonies are obligatory in the private recitation of the Office. It is, however, praiseworthy to make the signs of the cross, and the inclination of the head at the *Gloria Patri* for example, and also to recite the *Preces feriales* kneeling.
+
+For the utility of students, the various signs of the cross, prescribed for choir recitation, are added here.
+
+At *Domine labia mea aperies* and (from custom) *Aperi Domine*, the sign of the cross is made on the lips with the thumb of the right hand.
+
+Where it is customary, the sign of the cross may be made on the breast at *Converte nos* in Compline.
+
+The ordinary sign of the cross is made:
+
+(a) At the beginning of the canticles *Benedictus*, *Magnificat*, and (by laudable custom) *Nunc dimittis*.
+
+(b) At the *Deus in adjutorium*, beginning each Hour (not in the psalms, or *Preces*, or in the "*ter dicitur*" of Prime).
+
+(c) At the *Adjutorium nostrum*[^89] before the
+
+[^88]: "Non autem cubando extra necessitatem." Tanquerey-Quévastre, *Brev. Synop. Theol. Moral.* (1918), n. 709.— Any reasonable cause excuses.
+[^89]: Not at the *Adjutorium* after the *Lectio brevis* of Prime, since the sign of the cross is made immediately after at *Dominus nos benedicat*.
+
+(i. e., any) *Confiteor*,[^90] and the *Indulgentiam* following it.
+
+(d) At the *Dominus nos benedicat* ending Prime, and the *Benedicat et custodiat nos* (whilst saying *Pater et Filius*, etc.) ending Compline.
+
+(e) At *Afferte Domino*, the first antiphon of Matins on the feast of the Epiphany.
+
+(f) At Matins, Lauds, and Vespers of the three last days in Holy Week, whilst beginning the first antiphon; and at the remaining Hours, whilst beginning the first psalm.
+
+[^90]: Including that of Compline though it be immediately preceded by the *Pater noster*.
+
+### Ordo Reading
+
+**71.** *Example:*
+
+Fer. IV. *alb.* S. Remigii Ep. C. *simpl.*— Ad Mat. Invit. Hymn. de Comm. Antt. pss. et V. de fer. L. I et II de Scr. occ. 3. pr. loc.— Ad Laud. omn. de fer. a cap. de Comm. et Suffr.—Ad Hor. omn. de fer. (Ad Pr. Prec.) a cap. de Comm.—(Missa *Statuit* Gl. 2 or. Fidelium 3 or. *A cunctis*) — Vesp. (alb.) de seq. (pr. loc.) — Compl. de Dom.
+
+*Meaning:*
+
+Wednesday. White. St. Remigius, Bishop Confessor. *Simple.*— In Matins the Invitatorium and hymn from the *Commune*. The antiphons, psalms, and versicle from the ferial. First and second Lessons (taken) from Scripture occurring. Third Lesson in proper place.— At Lauds everything from the ferial. From Capitulum as found in the *Commune*.— Suffragium said.— At the Little Hours everything is from the ferial. (At Prime *Preces dominicales*.) From Capitulum on is taken from the *Commune*. (Mass *Statuit*, Gloria, second Oration: Fidelium; third oration: *A cunctis*.) — Vespers (white) of the following (in the proper place).— Compline of the Sunday.
+
+---
+
+# PRACTICAL THEORY
+
+# TITULAR AND DEDICATION OF CHURCHES
+
+## CHAPTER XI
+
+## THE TITULAR AND DEDICATION OF ONE'S OWN CHURCH
+
+### State of the Question
+
+**72.** Many a priest has been perplexed when, on opening the diocesan *Ordo* on the feast-day of the titular of his church, he finds there anything but directions suited to a feast which is a double of the first class (with an octave), such as titulars are. The church may be called after St. Augustine, and still the Ordo has it marked down as an ordinary *duplex* without any mention whatsoever of an octave. He may look the whole Ordo through without, perhaps, finding a solution to his difficulties. The conclusion is at once clear to him; he must needs make out his own Ordo for that week.
+
+Now, these cases are not rare. There are churches called by the names of practically every saint in the Calendar; thus, for example, we hear of St. Helen's Church, St. Paul's Church, St. Patrick's Church; we likewise hear of the Church of the Holy Rosary, of the Most Holy Redeemer, the Church of the Nativity, and so on. To solve these various problems, then, certain rules are laid down, since one is not allowed to treat the case as he thinks best. As far as a feast with an octave is concerned, what has been said also applies to the dedication of a church.
+
+### Meaning of Words
+
+**73.** "The *Titular* of a church," says Vigourel, is the person, the mystery, or the sacred object (the cross, for instance), whose name the church has received when consecrated or solemnly blessed."[^91]
+
+In the New Code of Canon Law we see that divine worship cannot take place in a new church before it has been consecrated,[^92] or at least blessed (c. 1165). The law also says that each church which is either consecrated or blessed shall have its *title*, which may not be changed afterwards; and that churches cannot be dedicated in honor of beatified persons without permission of the Holy See (c. 1168); and that the feast of the consecration[^93] and the feast of the title of a church are to be observed each year according to liturgical laws (canons 1167 and 1168).
+
+**74.** In a wide sense, the *Dedication* of a church means the "setting aside" of the material building for divine worship, by either solemn consecration
+
+[^91]: *Synthetical Manual of Liturgy*, p. 121.
+[^92]: A church built of wood, iron, or other metal, can only be blessed, not consecrated (c. 1165).
+[^93]: The *consecration* of a church is reserved to those possessed of episcopal dignity, whereas the *blessing* of a church may be performed by a priest, usually through delegation (c. 1156). A *public* oratory may be blessed or consecrated (c. 1191); *semi-public* (and "domestic" i. e., private) oratories need not be even blessed, but they may be blessed with the *Benedictio Loci* of the Roman Ritual (c. 1196).
+
+or blessing. Now churches and public oratories alone may be either consecrated or solemnly blessed. Therefore the obligations arising from dedication, viz., the Office of the titular and — in some cases — the Office of the consecration (as well as the anniversaries of those days) affect churches and public oratories only, i. e., those attached to such churches and oratories[^94] either *ratione beneficii* or *ratione subjectionis* (n. 77).
+
+**75.** The titular of a church is sometimes called the patron of the church, and, as such, the term "patron" must not be confounded with the *patron of a place*[^95] (of a town, city, diocese, province, or nation). The patron of a place is always a person, whereas the titular of a church is not.
+
+### New Office-Rubrics
+
+**76.** In the *New Rubrics*[^96] we find the following information regarding titulars, etc.
+
+(a) The feast of the dedication of any church is always primary (n. 88) and a feast of the Lord.
+
+The word "dedication" is here taken (as in all similar applications) in its strict liturgical sense,
+
+[^94]: Chapels (e. g., those of seminaries) that are solemnly blessed fall under these rules. S. R. C., n. 4110.
+[^95]: "*The patron of a place*," says Vigourel, *loc. cit.*, "is its protector. There are patrons of a city, of a diocese, of a country, of the Universal Church. The patron is chosen by the people, the choice approved by the clergy and the Bishop, and confirmed by the S. Congregation of Rites. (S. R. C., 526.)"
+[^96]: These are the "Additiones et Variationes in Rubricis Breviarii ad normam Bullæ *Divino afflatu*," and the "Duæ Tabellæ."
+
+viz., the *consecration* of a church. Consecrated churches, therefore, will have two distinct feasts, which, as we shall see, are to be celebrated with octaves: one, the feast of the titular; the other, the feast of the consecration, which is called the *dedication*. Churches and oratories that are merely blessed have no *festum dedicationis*, but they have the feast of the titular (with its octave).
+
+(b) The feast of the dedication of one's own church and its anniversary, as well as the titular of the same and likewise its anniversary,[^97] are not only *primary* doubles of the first class, but also feasts having a *common octave* (the octave-day being, in each case, a primary double major).
+
+Several other useful points taken from the New Rubrics will be given further on.
+
+### Priests Concerned
+
+**77.** It has been already stated that those concerned with the Offices of the titular and dedication of a church are those attached to it (i. e., whose own the church may be said to be) either *ratione beneficii* or *ratione subjectionis* (S. R. C., n. 3863, ad 2). Such, for instance, are the parish priest; the assistants; rectors (in case of non-parochial churches); the faculty as well as the seminarians, if their seminary chapel has been at least solemnly blessed. In other churches — not having their own,
+
+[^97]: If such churches (public oratories, seminary chapels, etc.) have been at least solemnly blessed.
+
+rectors — those feasts are celebrated by the Masses which may be said by priests celebrating in them.[^98]
+
+**78.** A parish-priest who has two churches (at least solemnly blessed) united, must recite the Office of both titulars, according to the Rubrics, especially if the churches are equally united ("*peræque unitæ*").[^99] S. R. C., July 5, 1698, n. 2002, ad 5. The public Office, however, and the Masses that are sung must conform to the church in which they take place, without regard to the other (Wapelhorst, n. 248, 2.).
+
+**79.** A *missionary* who exercises the pastoral care of souls in several (solemnly blessed) churches, one of which is attached to the place where he usually resides, must celebrate only the titular "ecclesiæ apud quem residere solet, vel dignioris" (S. R. C., Aug. 25, 1882, n. 3554). Cf. n. 3571, ad 2, where it
+
+[^98]: In some localities there exists a custom of celebrating, on one and the same day, the anniversary of the dedication of all the churches in the place. It is obvious, then, that the dedication of the individual consecrated churches is celebrated on that day, and on that day only.
+[^99]: Cf. canon 1419, n. i., which says that the union of "benefices" is *æque principalis* when the united benefices remain the same as they were before, one not being subordinate to the other.— In a union that is *minus principalis*, one or several of the various benefices are subordinate to another, principal, benefice. Canon 1420 says that in an *equally principal* union each benefice conserves its nature, rights, and obligations, but, by virtue of the union effected, the titles to the different benefices are conferred on one and the same cleric; whereas, in the *less principal* union the accessory benefice follows the principal one, so that the cleric who obtains the principal benefice also acquires the accessory, and must fulfil the obligations of both.
+
+is a question of missionaries who, as rectors, attend several churches.
+
+### The Question Proper
+
+**80.** When we come face to face with the question of titulars and that of dedication, we find that it is not at all as easy a subject as it may at first seem to be. Certain questions naturally present themselves regarding both the festivals and their octaves. The questions, of course, must be answered, and all concomitant difficulties must be solved. Now, even this would not be a very hard task if the titular and dedication of one particular church only were to be considered; when, however, rules are to be given which must apply to churches in general, it is quite obvious that the work is thereby rendered far more difficult. Meeting, then, the difficulty face to face, the various and rather profuse directions given in the following pages will be most useful, not only for solving difficulties connected with the question at issue, but also for understanding many various similar questions and solving the problems with which they are generally associated.
+
+At the end of this treatise a summary is given under the title: "Practical Recapitulation."
+
+### General Information
+
+**81.** When two or more Offices[^100] fall on the same day, they are said to *occur* (hence the noun "occur-
+
+[^100]: We do not say two or more *feasts*. Thus, for instance, St. Valentine's Day, which is a *feast*, may fall on Ash Wednesday, which is not a feast but a *ferial* (though "*feria*" originally meant "feast-day," but it no longer retains that meaning except, perhaps, in the word *feriation*, which denotes the exterior solemnity of feasts — *festa fori*).
+
+rence"). When several Offices thus fall simultaneously, only one can be duly celebrated (i. e., one is *preferred*), and the others are either simply commemorated, or entirely omitted, or *transferred* to another day, on which they may also be properly celebrated.
+
+Doubles of the first and second class alone have the privilege of being transferred (hence the noun "*translation*") if they cannot be celebrated the day on which they fall.
+
+Other Offices (doubles, semi-doubles, and simples) may not be transferred, but they must often be commemorated, for instance in the Vespers, Lauds, or in the Mass of the occurring Office that has been *preferred*.
+
+**82.** When several Offices occur, one is always preferred and, therefore, celebrated, whereas the others may be all commemorated (= *inclusive occurrence*), or they may be transferred (= *exclusive occurrence*) according to the prescriptions of the Rubrics. Some, again, may be transferred, and others merely commemorated, or even entirely omitted that year. When doubles and semi-doubles are thus merely commemorated, they are said to be simplified.
+
+**83.** When we say that a certain office is *impeded*, we mean that it may not be celebrated on its own proper day ("*sedes propria*"), but that it is either transferred, simplified, or entirely omitted. If a certain Office is impeded in the same way every year, it is said to be *perpetually impeded*. If it is indeed impeded, but rather by accident — not in the same manner each successive year — it is then said to be *accidentally impeded*.
+
+---
+
+## CHAPTER XII
+
+## OCCURRENCE AND TRANSLATION
+
+**84.** When several Offices fall on the same day, it is important to know:
+
+1st, what Office will be preferred;
+2d, what Offices will be transferred; and
+3d, to what day will they be transferred;
+4th, what Offices will be merely commemorated (i. e., simplified) or entirely omitted.
+
+### General Rules
+
+**85.** (a) There are Offices which are always celebrated the day on which they fall, no matter what other Offices may occur; these are:
+
+1st, major Sundays of the first class;[^101]
+2d, major privileged ferials;
+3d, privileged vigils of the first class;
+4th, privileged octaves (i. e., each day within such octave as well as the octave-day itself) of the first order;[^102]
+5th, the feast of the Circumcision (although it is only a double of the second class);
+
+[^101]: Do not take "first class" as meaning "double of the first class."
+[^102]: A list of all these privileged Offices is given in n. 62 f.
+
+6th, All Souls' Day (except when it falls on a Sunday, in which case it is always celebrated on the following day).
+
+(b) Primary (n. 88, c) doubles of the first class celebrated in the Universal Church[^103] are likewise celebrated the day on which they fall, provided none of them come in occurrence with the Offices just given in (a).
+
+(c) *Common Sundays*, called "*Dominicæ per annum*" (i. e., those that do not come under the heading of "major Sundays"), are preferred to all occurring Offices save doubles of the first or second class, or any feast of the Lord having nine Lessons in Matins, and also the privileged octave-days of the Lord.
+
+[^103]: Feasts celebrated in the Universal Church are those found in the Calendar (at the beginning of each volume of the Breviary) or in the *Proprium de Tempore*. It may be here usefully stated that all doubles of the first class found in the places just referred to are primary, with one exception, viz., the feast of the Sacred Heart (celebrated on the Friday following the octave of Corpus Christi), which is secondary.
+
+### Other Rules
+
+**86.** (a) *Major Sundays of the second class* are preferred to any feast whatsoever, with the exception of doubles of the first class.
+
+(b) *Privileged octaves of the second order* are preferred — on days within the octave — to any feast whatsoever, excepting doubles of the first class; and — on the octave-day — to all doubles of the first class which are not celebrated in the Universal Church.[^104]
+
+(c) *Privileged octaves of the third order*, and *common octaves*, are preferred — on days within the octave — only to Offices of simple rite; and — on the octave-day — to all doubles that are not of the first or second class.
+
+(d) *Simple octaves*, having no "*dies infra octavam*," are preferred, on their octave-day (which is only of simple rite), to simples and to the Office of *S. Maria in Sabbato*.
+
+(e) The *vigil of the Epiphany*, which is the one and only privileged vigil of the second class, is — like a Sunday — preferred to all feasts excepting feasts of the Lord and doubles of the first and second class.
+
+(f) *Major non-privileged ferials* are preferred only to feasts of simple rite.
+
+[^104]: Wapelhorst, *Compendium S. Liturgiæ*, n. 245, I., says, or, rather implies, that the octave-day of the Epiphany does not yield to a double of the first class celebrated in the whole Church. He does not, however, give any references in favor of his statement. The Rubrics given on privileged octaves would seem to prove the contrary.
+
+---
+
+## CHAPTER XIII
+
+## OTHER CASES OF OCCURRENCE
+
+**87.** So far we have taken up the question of concurrence in relation to certain festivals and certain other determined days. There are, however, numerous cases in which Offices may occur in various ways, and for these cases there are special rules.
+
+When many Offices of different rite and dignity occur, we want to know which one will be actually celebrated; and what about the others which may have to be transferred (if they have that privilege) or merely commemorated? The questions of Translation and Commemorations will be dealt with under their own proper headings, and now we will treat of rules by which one Office is preferred to other Offices which may fall on the same day.
+
+**88.** *General rule.* The "most important" Office is preferred; the other, or others, are either transferred, reduced to a commemoration, or entirely omitted.
+
+### Points to be Considered
+
+In order to determine which is the *most important* Office, the following points are given to be considered in the *order* here stated (if the question cannot be solved by one, take the *next in order*).
+
+(a) *RITUS ALTIOR*; the Office of higher rank is preferred; thus, a double of the second class is preferred to an occurring double major. It is to be remembered, however, that there are Sundays, privileged ferials, vigils, and octaves, which exclude feasts of higher rite. Thus, for instance, the ordinary Sundays are only semi-doubles, but they are preferred even to doubles major. Thus, again, Ash Wednesday is only of simple rite, but, being a major privileged ferial, it is preferred to any feast whatsoever.
+
+(b) *MAJOR SOLEMNITAS*; this point is to be considered when, for example, the feast is celebrated with feriation[^105] ("*etiam in foro reducta vel sublata*") or with an octave. The reason of "greater solemnity" arising from an octave, is, however, to be taken into account only on the festival itself and on its octave-day, not on the days within the octave.
+
+(c) *RATIO PRIMARII*[^106] *aut Secundarii*; at the beginning of each volume of the Breviary a list of feasts is found arranged according to the order of
+
+[^105]: A list of the "*festa feriata*" will be found in the Breviary. Feriation — which refers to exterior solemnity — implies the obligation of hearing Mass and abstaining from servile work; in a word, feasts "celebrated with feriation" means feasts *of obligation* ("*feria*" originally meant a feast-day, a free day).
+[^106]: "As to the feasts of *Our Lord* and the *Blessed Virgin*, they are *primary*, whenever their object is of great importance, and is not implicitly included in another feast."— Vigourel, n. 109.
+
+primary and secondary.[^107] Let it be noted in passing, that the following feasts are primary[^108] doubles of the first class: the Titular and Dedication both of one's own church and of the cathedral (as well as the anniversaries of these dedication feasts); the principal patrons of a town, city, diocese, province, and nation; the titular (e. g., the Most Holy Redeemer) and Holy Founder (e. g., St. Alphonsus Liguori) of an Order or Congregation.
+
+Note also that the following are doubles major *primary*: the octave-day of any festival that is a primary double of the first class, and the feasts of less principal patrons.
+
+Days within privileged octaves of the third order, and days within common octaves, are all *secondary* (cf. D. 3886, ad 1).
+
+(d) *DIGNITAS PERSONALIS*; in solving difficulties by this point the following order of "personal dignity" must be observed: feasts of the Lord, of the Blessed Virgin, of the Angels, of St. John the Baptist, of St. Joseph, of the Apostles (including St. Barnabas), of the Evangelists.[^109] The feast of the dedication of any church is always primary, and a feast of the Lord.
+
+[^107]: The distinction between primary and secondary feasts also extends to doubles (major and minor) and semi-doubles, both in occurrence and concurrence.— D. 3837.
+[^108]: Other primary feasts (each according to its own rite) are the "birthday" or "quasi-birthday" of any saint. See 59, footnote. Other feasts of the same saint (e. g., the translation of his relics, his patronage, etc.,) are secondary.
+[^109]: All other saints are of equal dignity liturgically.
+
+(e) *PROPRIETAS FESTORUM*; a feast is said to be *proper* to a place if, leaving aside the titular and dedication of one's own church, it is a question of the principal patron of a place; the titular and holy Founder of an Order or Congregation; or also, the secondary patron of a place; or again, a saint (described in the martyrology or in its approved appendix) whose body — or any other prominent relic[^110] ("*insignis reliquia*") — is preserved in the place; or a saint who has special relations to the church, to the place, or to the body of persons ("*personarum cœtum*"). Any feast, proper in this way, is therefore — all things else being equal, — preferred to a feast of the Universal Church. Exception, however, must be made in favor of the following Offices (of the whole Church) which must be considered, and they really are proper to every place.
+
+1. Privileged Sundays, ferials, vigils, and octaves;
+2. Feasts that are primary doubles of the first class in the Universal Church.
+
+(f) Lastly may be considered the relative dignity according to which a pontiff-martyr precedes a martyr only; a martyr, a confessor, and so on. (Note the arrangement followed in the *Commune*.)
+
+[^110]: Prominent relics are the entire body or the head, arm, forearm, heart, tongue, hand, leg, or that part of the body in which the martyr suffered, provided the relic be entire and not small (canon 1281). Prominent relics of saints or blessed may not be kept in private houses and private oratories without explicit permission of the Ordinary (c. 1282).
+
+---
+
+## CHAPTER XIV
+
+## OCCURRENCE AND OCTAVES
+
+**89.** Since the titular and the dedication of churches — as well as the anniversaries of these feasts — are to be celebrated with a *common octave*, it is fitting that some additional remarks be here made on the subject.
+
+### Remarks
+
+(a) Preference of an octave is to be made according to the same rules as those by which one feast is preferred to another among themselves.
+
+(b) All octaves that are not in the Roman Breviary cease (i. e., "*de eis nihil fit*"), from December 17th to the vigil of Christmas; from Ash Wednesday to Low Sunday; and from the eve of Pentecost to Trinity Sunday, always inclusive.
+
+(c) The days within a common octave are semi-doubles secondary, and the octave-day is a double major. Moreover, the octave-days of titular and dedication feasts are primary doubles major.
+
+(d) Days within common octaves are preferred — in case of occurrence — to simple Offices only, and the octave-day is preferred to all doubles that are not of first or second class.
+
+(e) When commemoration of an octave has to be made at Vespers, it is taken from second Vespers unless the Office of the octave is recited on the following day, in which case the commemoration is taken from first Vespers.
+
+(f) *Privileged octaves* only — during the whole octave — are said "*modo solemni*," i. e., the psalms at Lauds, the Little Hours, and Compline are taken from the Sunday in the Psalter; during *all other octaves* the psalms are all taken from the current day in the Psalter.
+
+(g) When two feasts or two octaves in honor of the *same person* accidentally occur, and may not be transferred according to the Rubrics,[^111] the Office of the more important ("*nobiliori*") feast or octave is celebrated, omitting — unless it is a question of different mysteries of the Lord — the commemoration of the other. Likewise, if during some common octave, or on the octave-day itself (even octave-days of simple rite),[^112] there occurs a feast (of any rite whatever) of the same person, the Office of such occurring feast is celebrated with all the privileges due to the octave itself (unless, indeed, the occurring feast is celebrated with higher rite), and a commemoration of the octave is omitted unless
+
+[^111]: As, for instance, when one feast is only a double major.
+[^112]: Compare, for instance, September 15th, which is the feast of the Seven Dolors and also the octave-day (simple rite) of the Nativity of the Blessed Virgin. Commemoration of the octave-day is omitted, whereas it would otherwise be made.
+
+it is a question of different mysteries of the Lord, in which case the commemoration is added.
+
+If, however, during some privileged octave or on some privileged octave-day, a feast of the same person should occur, the more important Office is celebrated, according to the Rubrics, and commemoration of the other is omitted, except when it is a question of different mysteries of the Lord (*New Rubrics*, tit. iv., n. 7).
+
+(h) If the octave-day of any feast is accidentally impeded, it is not transferred, but it is celebrated or omitted on its own day, according to the Rubrics.
+
+However, the octave-day of the feast of the Most Holy Name of Jesus — should this feast be anywhere celebrated with an octave — will be celebrated *eight* days after the day on which the feast itself was celebrated, even if this day was not a Sunday, but the second of January[^113] (*loc. cit.* n. 8).
+
+(i) If, during some octave or on the octave-day itself, there *perpetually* occurs some feast of the same person, what has been said above regarding their *accidental* occurrence will be then also likewise observed.
+
+[^113]: This case is a good illustration of the preceding rule, because the octave-day would fall on January 9th, i. e., during the *privileged* octave of the Epiphany, a commemoration of which would be made, since these are different mysteries of the Lord.
+
+---
+
+## CHAPTER XV
+
+## TRANSLATION OF FEASTS
+
+**90.** Festivals that are doubles of the first or second class may be transferred if they are either *accidentally* or *perpetually* impeded. Other feasts (viz., doubles major or minor and semi-doubles) are not transferred, but are either commemorated or entirely omitted the day they fall.[^114]
+
+As a general rule, (accidentally or perpetually) impeded doubles of the first or second class are to be transferred to the first following day which is free from:
+
+1st, other doubles of the first or second class;
+2d, a privileged vigil and other Offices that exclude such feasts;
+3d, any Sunday, if there be question of "*repositio accidentalis*" (i. e., transferring an accidentally impeded feast to another day — as above — but not to that day each year);
+4th, an octave-day of double major rite, if there be question of "*repositio perpetua*" (i. e., celebrating a perpetually impeded feast on another *fixed day* which, each year, is to regarded as its "sedes propria").
+
+[^114]: Note the one exception given in n. 95.
+
+**91.** Doubles of the first and second class that are assigned to certain ferials (e. g., the feast of the Sacred Heart is assigned to the Friday following the octave of Corpus Christi), if they are *perpetually impeded*, are likewise transferred to the first following day that is perpetually free, on which day ("*tamquam in sede propria*") they will always be celebrated.
+
+**92.** When more than one feast has to be transferred, attention should be paid to the following points (already explained in n. 88) which should be taken in the order here given:[^115]
+
+1st, higher rite;
+2d, greater solemnity;
+3d, reason of primary or secondary;
+4th, personal dignity;
+5th, "proprietas festorum."
+
+### Translation and Octaves
+
+**93.** When feasts of the Universal Church having an octave are — on account of a *perpetual* impediment — to be transferred[^116] to the first following free day, according to the Rubrics, these octave-days are not likewise transferred accordingly, but they (i. e., the octave-days) must be celebrated in the Universal Church on their own day. The same
+
+[^115]: Special rules are given, in their proper place, for the following feasts: Holy Name; Sacred Heart; Purification; St. Joseph; Annunciation; Nativity of St. John the Baptist.
+[^116]: This case refers to particular churches or places.
+
+must be said of the octave-day of a feast proper (n. 88) to some nation, diocese, Order, or Institute, when such feast has to be transferred to another day in some *particular* church.
+
+**94.** If, on the contrary, a feast (having an octave) proper to a nation, diocese, Order, Institute, or particular church (e. g., the titular) is impeded in the whole nation, diocese, Order, Institute, or in its own particular church respectively, and if it is therefore transferred according to the Rubrics, the octave-day — transferred accordingly — will be observed *eight days* after the day on which the feast was actually celebrated, just as if the feast itself had been celebrated on its own proper day.
+
+**95.** Feasts of double major or minor, and semi-double rite that are proper to any nation, diocese, Order, Institute, or particular church, and that are *perpetually* impeded in the whole[^117] nation, diocese, Order, Institute, or in their own particular church, are transferred to the first following day which is free from:
+
+1st, An Office of double or semi-double rite;
+2d, privileged vigils;
+3d, privileged octaves of the second order.
+
+Moreover, if they are celebrated with an octave, they will have the entire octave, just as if they had been celebrated on their own day.
+
+[^117]: If any feast is only impeded in one or other particular church, it is commemorated or omitted like other Offices of similar rite.
+
+N. B. It would be well to rehearse all the rules just given by perusing the Table of Concurrence given at the beginning of any volume of the Breviary.
+
+---
+
+## CHAPTER XVI
+
+## CONCURRENCE OF OFFICES
+
+**96.** Concurrence means the meeting, so to say, of the second Vespers of one day's Office with the following day's first Vespers (since, liturgically, to-morrow's Office, for instance, begins to-day at the canonical Hour of Vespers). It is readily understood, then, that concurrence implies *two* days (no more and no less) as considered in the Hour of Vespers, which, as a canonical Hour, is recited *only once* each (civil) day.[^118] In conclusion, then, it may be said that:
+
+(a) More serious mistakes can be made by the wrong handling of the rules of occurrence than by the inaccurate application of the rubrics on concurrence. Effectively, the question of *occurrence* mainly considers *complete* Offices (as well as the Mass, which follows them), whereas *concurrence*
+
+[^118]: If, when referring to the *Table of Concurrence* given in the Breviary, the Office that precedes the word "*cum*" is taken as the second Vespers of *to-day*, and the Office that follows the word "*cum*," as the first Vespers of *to-morrow*, no difficulty will be found in understanding the answer. Thus, for instance: "Quando concurrit duplex majus cum duplici II classis," (solution:) *Totum de sequenti* (= to-morrow), *commemoratio præcedentis* (= to-day).
+
+deals with *only one* particular Hour (viz., Vespers) of consecutive Offices.
+
+(b) In the question of concurrence there are never any difficulties on "translation" to be solved, because concurrence deals with Offices that are actually celebrated or, at least, commemorated.
+
+### Rules of Concurrence
+
+**97.** *General rule.*
+
+The Vespers of any two consecutive feasts are preferred among themselves in much the same way as are occurring Offices. In concurrence, however, it often happens (when both Offices are in every way equal) that both Vespers may be said to be recited, inasmuch as the second Vespers of one day is said as far as the *Capitulum* (exclusive), from which the first Vespers of the following day starts. No compromise of this kind takes place in occurrence.
+
+**98.** *Rules in Particular.*
+
+(a) The entire Vespers of an Office (whether *præcedens* or *sequens*) will be said if (as in occurrence) it is the more *important* by reason of (the following points which are to be taken in order and considered as already explained in n. 88):
+
+1st, higher rite, with the exception given below in (b);
+2d, greater solemnity (with a commemoration of the other);
+3d, primary or secondary (with a commemoration of the other);
+4th, personal dignity.
+
+**99.** When these *four* points have been considered, and it is found that the concurring Offices are in every way equal, then, as a general rule, the Vespers is divided in such a way that from the *Capitulum* on will be of the first Vespers of the *following Office* with a commemoration of the second Vespers of the *preceding Office*.[^119] See exception given below in (c).
+
+(b) Notwithstanding the rules already given, exception must be made of:
+
+1st, major Sundays, of which the entire Vespers is always said, unless they concur with doubles of the first or second class;
+2d, minor (= common) Sundays, of which the entire Vespers is said, unless they concur with the feasts of the Lord, with the privileged octave-days of feasts of the Lord, or with doubles of the first or second class.
+
+(c) When two Offices of the *same person* concur, the more important is celebrated, omitting — except in the case of their being different mysteries of the Lord — the commemoration of the other.[^120] If the two Offices are of equal importance, the second Vespers of the preceding is said, omitting the commemoration of the following, unless it is a question of different mysteries of the Lord.
+
+[^119]: There are exceptions, as, for instance, during the octave of Christmas.
+[^120]: Cf. special Rubrics for the octave-day of Corpus Christi.
+
+---
+
+## CHAPTER XVII
+
+## COMMEMORATIONS
+
+**100.** Commemoration can be made of either *occurring* or *concurring* Offices.
+
+Now, commemoration of occurring Offices may be made not only in Lauds, but also in both Vespers of the Office actually said (i. e., preferred).
+
+If the foregoing statements are properly understood, it will not be very difficult to see that, in the *Vespers* of any particular day (in which the one who recites the Office actually is — either really or mentally) there may be three *types* of commemorations.
+
+Let us suppose, for instance, that to-day we are saying the Vespers of to-day's feast (i. e., second Vespers) with a commemoration of to-morrow's Offices, (i. e., their first Vespers), then the three types may be:
+
+1st, commemoration (from first Vespers) of the Office celebrated to-morrow[^121];
+2d, commemoration of its (i. e., the Office celebrated to-morrow) occurring (simplified) Offices;
+3d, commemoration of the Offices which occur with to-day's Office.
+
+[^121]: In Vespers, commemoration of *concurring* Offices is always made first.
+
+### Illustration
+
+**101.**
+
+*To-day's Office: II. VESPERS.*
+
+1. Double of 1st class.
+2. Sunday.
+
+&nbsp;&nbsp;&nbsp;&nbsp;"*Præcedens*" (Officium).
+
+"*Sequens*" (Officium). *I. VESPERS: To-morrow's Office.*
+
+1. Double of 2d class.
+2. Semi-double.
+
+Since, in this illustration, the second Vespers of to-day's feast (double of the first class) is said, the three types of commemorations are:
+
+1st, commemoration of to-morrow's feast, which is a double of the second class;
+2d, commemoration of a (simplified) semi-double, occurring with to-morrow's feast;
+3d, commemoration of Sunday's Office, which occurs with to-day's feast (which has been preferred to it).
+
+**102.** These three *types* may be reduced to two *classes*:
+
+1st, commemoration of the Offices that *concur* with the Office of which the Vespers is actually recited (entire or in part);
+2d, commemoration of the Offices which *occur* with the Office of which the Vespers is actually recited (whether entire or in part).
+
+### Commemorations Proper
+
+**103.** *General remarks.*
+
+(a) All Offices have both first and second Vespers, except:
+
+1st, *simples*, which have only first Vespers;
+2d, *ferials*, which have only second Vespers;
+3d, *vigils*, which have neither first nor second Vespers.
+
+(b) As a general rule, commemoration of the following Offices (when impeded) is always made where commemorations may be made (viz., in Lauds and both Vespers when they *occur*, and in Vespers only when they *concur*):
+
+1st, Sundays;
+2d, privileged octaves;
+3d, major ferials:[^122]
+
+&nbsp;&nbsp;&nbsp;&nbsp;of Advent and Lent (commemorated in Lauds and subsequent Vespers only);
+&nbsp;&nbsp;&nbsp;&nbsp;ember-days and Rogation Monday (all commemorated in Lauds only).
+
+(c) At Vespers it is important to remember that commemoration of the *concurring* Vespers[^123] always comes first. This being remembered, the order of the various commemorations (in Lauds and both Vespers) is as follows:
+
+1st, any Sunday (or the vigil of the Epiphany);
+2d, a day within an octave of the second order;
+
+[^122]: Here it cannot be a question of major *privileged* ferials since these Offices exclude all other Offices that may occur.
+[^123]: That is, the Vespers other than that actually recited at the time commemorations are made.
+
+3d, doubles:
+
+&nbsp;&nbsp;&nbsp;&nbsp;double major octave-day,
+&nbsp;&nbsp;&nbsp;&nbsp;double major,
+&nbsp;&nbsp;&nbsp;&nbsp;double minor;
+
+4th, semi-doubles:
+
+&nbsp;&nbsp;&nbsp;&nbsp;semi-double,
+&nbsp;&nbsp;&nbsp;&nbsp;day within octave of the third order,
+&nbsp;&nbsp;&nbsp;&nbsp;day within a common octave,[^124]
+&nbsp;&nbsp;&nbsp;&nbsp;Friday after the octave of the Ascension;[^125]
+
+5th, simples:
+
+&nbsp;&nbsp;&nbsp;&nbsp;major ferial,
+&nbsp;&nbsp;&nbsp;&nbsp;common vigil,
+&nbsp;&nbsp;&nbsp;&nbsp;octave-day of simple rite,
+&nbsp;&nbsp;&nbsp;&nbsp;simple.
+
+(d) Doubles (major or minor) and semi-doubles which may not be commemorated, according to the Rubrics, are entirely omitted that year.
+
+[^124]: A day within a common octave is, no doubt, a semi-double, but it is *secondary* (i. e., in practice it is lower than the ordinary semi-double). Sometimes the word "semi-double" does not refer at all to a day within a common octave; thus, for instance, the *New Rubrics*, tit. VII., nn. 1 and 2, speak of "*de quolibet semiduplici*," which excludes a day within a common octave, as may be verified in the Table of Occurrence.
+[^125]: This is a kind of privileged ferial from the fact that it comes — all alone — between the privileged octave of the Ascension and the privileged vigil of Pentecost.
+
+### Rules in Particular
+
+**104.** (a) *Vigils* are commemorated in Lauds only, and not even in Lauds if:
+
+1st, the vigil falls on a *major ferial* (a commemoration, however, is made in the Mass);
+
+2d, the vigil *accidentally*[^126] concurs or occurs with a double of the first class (the vigil of the Epiphany is an exception).
+
+(b) *Doubles* (major or minor) are commemorated in Lauds and both Vespers. Exceptions:
+
+1st, on doubles of the first class they are commemorated in Lauds (and in private Masses) only;
+2d, on feasts of the Lord which are primary doubles of the first class in the Universal Church they are not commemorated at all.
+
+(c) *Semi-doubles* are likewise commemorated in Lauds and both Vespers. Exceptions:
+
+1st, on doubles of the first class they are commemorated in Lauds (and in private Masses) only. Moreover, on feasts of the Lord which are primary doubles of the first class in the Universal Church they are not commemorated at all.
+
+2d, a day within a common octave is also commemorated in Lauds and both Vespers, except when it *occurs* or *concurs* with either a double of the first or second class.
+
+(d) *Simples* are commemorated in first Vespers and Lauds (they have no second Vespers). Exceptions:
+
+1st, if they occur or concur with a double of the first class they are entirely omitted;
+
+[^126]: A vigil which is *perpetually* impeded by a double of the first class and a vigil which falls on a Sunday are anticipated.
+
+2d, if they *occur* with a double of the second class, they are commemorated in Lauds only; but if they *concur* with a double of the second class they are entirely omitted.
+
+(e) In *concurrence*, the Vespers of one Office will be recited at least from the *Capitulum* on. Now, as a general rule, commemoration is made of the *other* concurring Office or Offices. Exceptions (besides those already mentioned):
+
+1st, in the first Vespers of a double of the first class, no commemoration is made of a preceding Office which is not a double of the second class or higher rite;
+
+2d, in the first Vespers of a double of the second class, no commemoration is made of a preceding semi-double.
+
+N. B. It has been taken for granted that throughout these rules the student has not forgotten what was said in (a) and (b).
+
+**105.** Another plan of commemorations is given in the Appendix (n. 7). Only doubles of the first and second class have been treated of, but for other Offices of inferior rite it may be said that, as a general rule, commemoration of occurring and concurring Offices is *always* made where commemorations may be made (i. e., in Lauds and both Vespers) when they are at all possible. (No one can make a commemoration of the second Vespers of a simple, because a simple has no second Vespers.)
+
+### Ninth Lesson in Matins
+
+**106.** Occurrence also entails consideration of commemorations in Matins by means of a ninth Lesson[^127]:
+
+(a) Whenever commemoration is made of a vigil, ferial or Sunday, the ninth Lesson of the feast actually celebrated will be the (first Lesson of the) homily proper to these commemorated Offices, provided the gospel in the commemorated Office is not the same as the gospel of the Office actually recited.
+
+Now the following Offices have a homily proper:
+
+1st, Sundays;
+2d, major ferials (excluding those of Advent that are not ember-days);
+3d, vigils, remembering that no commemoration of a vigil is made (in the Office) when it occurs with a major ferial or a double of the first class.
+
+(b) When commemoration is made of a *feast* of double or semi-double rite, the ninth Lesson in Matins will likewise be of these commemorated festivals. The ninth Lesson, however, will not be of commemorated doubles or semi-doubles in the following Offices:
+
+1st, Sundays;
+2d, doubles of the first class;
+3d, during the octave of Corpus Christi;
+
+[^127]: When a homily is said in the Office as ninth Lesson, then the last gospel in the Mass is likewise special.
+
+4th, when the ninth Lesson is already a commemoration of a Sunday, ferial, or vigil;
+5th, Offices of three Lessons.
+
+**107.** This equally applies to commemorated festal Offices of simple rite, and, in every case, it is necessary that the Lesson or Lessons used as ninth Lesson be really and truly *historical* (i. e., giving an account of the life of the saint). In Offices of nine Lessons the historical Lessons are found in the second nocturn. It often happens that, if little or nothing is recorded of the life of the saint, the Lesson of the second nocturn will be supplied by a sermon or something similar, which cannot be said to be historical in the sense explained above.
+
+**108.** When we speak of taking the historical Lessons of a commemorated feast, in order to make a ninth Lesson for an occurring Office, it must be always understood that *all* the historical Lessons (of a commemorated feast) are taken and united *per modum unius*.[^128]
+
+When two or more commemorated Offices should — according to the rules given — have the historical Lessons taken as ninth Lesson, "legitur tantum illa dignioris." *Rub. gener.* xxvi., 3.
+
+[^128]: In some of the new Breviaries special *single* Lessons are found which may be used as ninth Lesson in occurring Offices. These single Lessons sum up the life of the saint as given in the three Lessons of the second nocturn. Cf. S. R. C., June 24, 1914.
+
+---
+
+## CHAPTER XVIII
+
+## TITULARS WITH ASSOCIATES
+
+**109.** If the *Titular Saint of a Church* is described in the Calendar with other saints, he is not to be separated from them when the reason of the union is a necessary reason of consanguinity or affinity.
+
+If, however, the reason of the union is merely one of occasion, viz., because they died the same day, then the titular is separated and celebrated alone.
+
+If his companions are likewise described in the Calendar as doubles of the first or second class, they are transferred — with the rite they have in the Calendar — to the first following day, according to the Rubrics on Translation. If they are of a rite inferior to double of the second class in the Calendar, then they are merely commemorated or omitted, according to the rules already stated.
+
+### Principal Patron
+
+What has just been said of a titular saint and his companions holds good also for the associates of the *principal patron* of a place, or of any other saint whose feast is anywhere celebrated as a double of the first or second class, if his feast must be regarded as a "festum *proprium*" in the sense explained in n. 88 (e).
+
+### Secondary Patron
+
+**110.** If a *secondary patron* (or any other "Sanctus *proprius*"), whose feast is of double major or minor, or semi-double rite, is likewise described in the Calendar with companions whose feast is of simple rite, then the feast of the secondary patron is celebrated with a commemoration of the companions, according to the Rubrics.
+
+If, however, there exists between them a necessary reason of consanguinity or affinity, or if they died in the same place, at the same time, and for the same cause, then the secondary patron (or other "Sanctus proprius") is not separated from his companions, but the one feast is celebrated for all, "*sub ritu qui Patrono aut Sancto proprio competat*" (New Rubrics, tit. ix., 5). The same is also done if *all* (for any reason whatsoever) are inscribed in the Calendar as doubles major or minor, or as semi-doubles. In this case, however, the name and deeds of the "Sanctus proprius," which are separated, are preferred to the name and deeds of his companions, in the Oration and in the Lessons of the second nocturn.
+
+---
+
+## CHAPTER XIX
+
+## PRACTICAL RECAPITULATION
+
+**111.** The feast of the titular, being a double of first class with a common octave, must be always celebrated when it falls, except when it *occurs* with any of the following Offices:
+
+1. Primary doubles of the first class celebrated in the Universal Church.
+2. All Souls' Day (even when this day accidentally happens to be the third of November).
+3. Feast of the Circumcision ("New Rubrics," notanda, 13).
+4. Major Sundays of the first class:[^129]
+
+&nbsp;&nbsp;&nbsp;&nbsp;First Sunday of Advent,
+&nbsp;&nbsp;&nbsp;&nbsp;First Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Second Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Third Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Fourth Sunday of Lent,
+&nbsp;&nbsp;&nbsp;&nbsp;Passion Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Palm Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Easter Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Low Sunday,
+&nbsp;&nbsp;&nbsp;&nbsp;Pentecost Sunday.
+
+[^129]: Do not confound the words "first class" with "doubles of the first class."
+
+5. Major privileged ferials:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ash Wednesday,
+&nbsp;&nbsp;&nbsp;&nbsp;Monday of Holy Week,[^130]
+&nbsp;&nbsp;&nbsp;&nbsp;Tuesday of Holy Week,
+&nbsp;&nbsp;&nbsp;&nbsp;Wednesday of Holy Week.
+
+6. Privileged vigils of the first class:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vigil of Christmas,
+&nbsp;&nbsp;&nbsp;&nbsp;Vigil of Pentecost.
+
+7. Privileged octaves of the first order:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Octave of Easter,
+&nbsp;&nbsp;&nbsp;&nbsp;Octave of Pentecost.
+
+8. Privileged octave-days of the second order:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Octave-day of the Epiphany,
+&nbsp;&nbsp;&nbsp;&nbsp;Octave-day of Corpus Christi.
+
+**112.** If, therefore, the feast of the titular falls on any of those days, it is to be transferred, with its octave, to the first following day which is not:
+
+1st, a Sunday;
+2d, a double of first or second class.
+
+[^130]: The remaining days of Holy Week are primary doubles of first class in the Universal Church.
+
+Should the feast of the titular fall within Holy Week or within the octave of Easter, it is then transferred to the first free day (as above) following Low Sunday; if the feast of the titular falls on the vigil or during the octave of Pentecost, it is transferred to the first free day after Trinity Sunday.
+
+### During Octave of Titular
+
+**113.** Now, since the feast of the titular is usually celebrated with a *common octave*, it may be given as a general rule that the diocesan Ordo is followed throughout the octave, except in so far as the following considerations on common octaves may modify it:
+
+(a) The Office of a day within a common octave is of *secondary* semi-double rite, and is preferred only to Offices of simple rite; when it is impeded, commemoration of it will be always made in the Lauds and both Vespers of occurring Offices as well as in the Vespers of concurring Offices. When, however, it occurs or concurs with doubles of the first or second class, commemoration of it is entirely omitted.
+
+(b) The *octave-day* is a primary double major, and is preferred to all other occurring (non-privileged)[^131] Offices, excepting doubles of the first or second class; when it is impeded, it is commemorated in the Lauds and both Vespers of the occurring Office. If, however, the occurring Office is a double of the first class, the octave-day — like other doubles major — is commemorated in Lauds only (and in private Masses). In concurrence, commemoration of an octave-day is always made except when it concurs with a following double of the first class.
+
+(c) When the Office of the octave is said, or when a commemoration of it is made, the *Suffragium* (or "*Commemoratio de Cruce*") is omitted in Lauds, and the *Preces dominicales* are omitted in Prime and Compline. The *Athanasian Creed*
+
+[^131]: Such as, for instance, Sundays, privileged vigils, etc.
+
+"*Quicumque*" is likewise omitted at Prime on a Sunday within the octave, commemoration of which has been made.
+
+(d) All octaves that are not in the Roman Breviary cease (i. e., "*de eis nihil fit*") from December 17th to the vigil of Christmas; from Ash Wednesday to Low Sunday; and from the vigil of Pentecost to Trinity Sunday, always inclusive.
+
+### How to Say the Office of the Feast
+
+**114.** With regard to the different parts of the Office, the following points should be noted:
+
+(a) *The feast itself:* the feast is celebrated "*modo solemni*," and therefore everything which is not already proper is taken from the *Commune* (according to the "quality" of the saint), except that at Lauds and the Little Hours the psalms are taken from Sunday in the Psalter.
+
+(b) *During the octave:* everything is said as on the feast itself,[^132] with the following exceptions, however, since the Office of the octave is recited "*modo ordinario*":
+
+1. The psalms of the various Hours are taken from the current day in the Psalter.
+
+2. The Lessons of the first nocturn are taken from the "Scripture occurring" in the *Proprium de Tempore*.
+
+[^132]: If there are two Orations, the first or second is taken according as the Lessons of the third nocturn are taken from the first or second place, so that the Mass may correspond with the Office as far as the Oration and the gospel are concerned.
+
+3. The Lessons of the second and third nocturns are taken from the *Octavarium Romanum*[^133] (the use of which is not obligatory), or from the *Commune*, or from the feast itself, in the manner indicated in n. 115.
+
+4. The Office of an occurring octave is not commemorated by means of a ninth Lesson in Matins, even though the Office of the octave may have a gospel and homily proper.
+
+**115.** The Lessons of the third nocturn (during the octave) are always the same as those of the feast itself (so as to agree with the gospel of the Mass); those of the second nocturn are taken from the *Commune*, alternatively *de primo* and *secundo loco* (according as the Office of the days within the octave — not excluding the octave-day — has to be recited).
+
+## CHAPTER XX
+
+## THE MASS OF THE TITULAR
+
+**116.** As a general rule, the Mass said will be in accordance with the Office recited. The following points should, however, be noted:
+
+(a) *On the festival itself.*
+
+1. In the Mass, the Commemorations are made as in Lauds. In the solemn Mass, however, com-
+
+[^133]: The purpose of the book is explained by its title, "Octavarium Romanum, Lectiones II et III Nocturni complectens recitandas infra octavas Festorum, praesertim patronorum locorum et titularium Ecclesiarum quae cum octavis celebrari debent, juxta rubricas Breviarii Romani, a S. R. C. ad usum totius orbis Ecclesiarum approbatum."
+
+memoration of occurring doubles major or minor and semi-doubles is omitted, but in private Masses it is not omitted. The *oratio imperata* is also omitted in all Masses of this day.
+
+2. The *Gloria* and *Credo* are said. If the feast has a proper Preface, this also will be used. If the feast has no Preface proper, and is celebrated within the octave of some other feast having a proper Preface, the latter is said. In other cases the common Preface is used unless there be one proper to the season (e. g., Lent, Passion Time, Easter, etc.).[^134] The Preface proper to the season is said even on Sundays falling within the season. In a word, the general rule on Prefaces should be followed: "Praefatio magis *communis* cedit magis *propriæ*."
+
+The Last Gospel will be special if there was a special ninth Lesson in Matins.
+
+(b) *During the Octave.*
+
+1. When the days within the octave are impeded (by any Office of semi-double or higher rite) they are commemorated, except on doubles of the first or second class.
+
+2. When the octave-day is impeded (by a Sunday or a double of the first or second class) it is
+
+[^134]: The Preface proper to the season is said even on Sundays falling within the season. On other Sundays (even those within an octave having no proper Preface), the Preface of the Blessed Trinity is said. The Preface of the Blessed Trinity is also used on Sundays impeded by any feast having no Preface proper.
+
+always commemorated, except in the solemn Masses of feasts which are doubles of the first class; moreover, if these impeding doubles of the first class are primary feasts of the Lord celebrated in the whole Church, the octave-day is not commemorated at all.
+
+3. During the entire octave the *Credo* is said, and if the feast has its own Preface, this also will be used during the octave, according to the rules given for the festival itself.
+
+4. A "slight" inclination of the head is made on pronouncing the name of a saint, both on his feast-day and during the octave, even if accidentally the Office has not been commemorated.
+
+5. If the Mass of a day within the octave is to be said (with all due regard to the privilege of saying Votive Masses), the Mass of the feast itself is read, and — if there are no *special* commemorations — the second Oration will be of the Blessed Virgin (according to the season), and the third, *Ecclesiæ, vel pro Papa*. If, however, the feast itself is one of the Blessed Virgin, the second Oration in the Mass of a day within the octave will be *de Spiritu Sancto*.
+
+6. On the Sunday within the octave, the second Oration will be a commemoration of the octave; no third "Common" Oration is then added, except it be a commemoration of some other occurring Office, and in this case the *order* of commemorations given in n. 103, (c) should be observed.
+
+### The Office of the Dedication
+
+**117.** What has been said regarding the Office and Mass of a titular, holds good also for the Office and Mass of the Dedication (with its octave) and its anniversaries. The following differences may be noted:
+
+1. In the Breviary, the Lessons, etc., to be recited during the octave are given near the end of each volume under the title: *Commune Dedicationis Ecclesiæ*.
+
+2. Should the feast of the dedication *occur* with the feast of the titular (because the church was consecrated on the feast of the titular) the dedication, which is regarded as *a feast of the Lord*, is celebrated in preference to the titular saint. If, however, the titular saint (e. g., St. Michael) is celebrated in the Universal Church as a primary double of the first class, then the Office of the titular, being *proper* and *universal*, is preferred to the Office of the dedication, which, although it is likewise "proper" (cf. n. 88), is, nevertheless, a *particular* feast (cf. *New Rubrics*, tit. 11).
+
+---
+
+# APPENDIX
+
+**1.** A cleric, on the day of his ordination to subdeaconship, is not bound to recite the whole Office of that day, but he is obliged to begin his Office at that Canonical Hour which corresponds, or is nearest to the hour of the day in which he receives ordination (Terce corresponds to nine a. m., and Sext to noon).
+
+**2.** The recitation of the ordination day's Office (or of any part of it) before receiving subdeaconship does not in any way satisfy the obligation (of saying the Office) imposed by that order.
+
+**3.** It is commonly held that, outside of choir, the *order* of the Office is merely accidental and not obligatory. For any reasonable cause, therefore, the order of the Hours (or of the different parts of the same Hour) may be inverted without fault. Cf. Carbone, *Praxis Ordinand.*, Q. 201, note.
+
+### Ordination Penance
+
+**4.** On those ordained to subdeaconship or deaconship the Bishop imposes a penance which he refers to as "Nocturnum *talis diei*." By this word "nocturn" is meant:
+
+(a) The nine psalms (with their antiphons) of Matins, if the day specified by the Bishop is a ferial.
+
+(b) The three psalms (with their antiphons) used in the first nocturn if the day he specifies is a Sunday or feast-day having nine Lessons at Matins (cf. S. R. C., June 27, 1899).
+
+The word *nocturn*, then, in no case includes the recitation of the Invitatory, Hymn, or Lessons (S. R. C., July 10, 1903).
+
+The recitation of this penance is in no way connected with the obligation of reciting the Office arising from ordination. It is separate and therefore additional.[^135]
+
+### Probable Opinions
+
+**5.** (a) A priest who is bound to the recitation of the *Roman Breviary* is not obliged to recite any part of his Office from a Breviary proper to a certain Order (e. g., the Benedictines) if he should not happen to have the Roman Breviary; neither must he recite the psalms of Matins who has not the Responsoria and Lessons; or any psalms at all, if he has not the antiphons and Capitula.— Sabetti, Suarez, Sanchez, Paulus, St. Alphonsus, and others quoted by Telch.
+
+(b) The omission of the *litaniæ majores* on the feast of St. Mark and during the Rogation days is not a grave sin.— Ballerini-Palmieri, St. Alphonsus, quoted by Telch.
+
+[^135]: This penance need not be recited on the day of ordination. It may be said with a companion.— Carbone, quoting Scavini and Gury-Tummolo.
+
+(c) There is no obligation to recite Matins and Lauds before Mass.— Ballerini, Noldin, quoted by Telch.
+
+(d) It is no sin not to recite the *prayers*, or not to celebrate the *Masses* imposed by the Bishop on newly-ordained priests.— St. Alphonsus, quoted by Telch.
+
+### Some Recent Changes
+
+**6.** (a) November 2d, All Souls' Day, has been made equal ("*æquiparatur*") to a primary double of the first class for the Universal Church (S. R. C., 28 Feb. 1917). Changes to be made in the Rubrics are given accordingly.
+
+(b) In the Office of St. Thomas of Villanova (Sept. 22d), the following words are to be omitted at the end of the sixth Lesson: "atque ejus memoriam quarto decimo Kalendas Octobris celebrari mandavit" (*ibid.*).
+
+(c) The feast of St. Joseph (March 19th) and of the Dedication of St. Michael the Archangel (Sept. 29th), which were doubles of the second class, are now doubles of the first class (S. R. C., Dec. 12, 1917). Consequent changes to be made in various parts of the Breviary are also given.
+
+### Commemorations
+
+**7.** The rules for commemorations on doubles of the first and second class are as follows:
+
+(a) *Doubles of the First Class:*
+
+- *Commemoratio præcedentis:* If it is: a Sunday; a privileged octave; a double of the first or second class; a ferial of Advent or Lent (whether only commemorated or not).
+- *Commemoratio occurrentis:* a) In Lauds and Vespers: Sunday; privileged octave; major ferial. b) In Lauds only: double (major or minor) and semi-double.[^136]
+- *Commemoratio sequentis:* Commemoration is made of every Office (even if only commemorated itself) except a day within a non-privileged octave and a simple.
+
+(b) *Doubles of the Second Class:*
+
+- *Commemoratio præcedentis:* Commemoration is made of every Office (even if only itself commemorated) except: a semi-double; a day within a non-privileged octave; a ferial (not, however, those of Advent or Lent, which are commemorated).
+- *Commemoratio occurrentis:* If it is: a double (major or minor); a semi-double; a day within a privileged octave; a major ferial; a common vigil; simple (in Lauds only).
+- *Commemoratio sequentis:* Same as given for doubles of the first class.
+
+[^136]: Doubles (major or minor) and semi-doubles are not even commemorated in Lauds on feasts of the Lord which are primary doubles of the first class in the whole Church. Cf. *New Rubrics*, tit. 7.
+
+In studying the rules just given, the following Rubric, found in the *Notanda in præc. tabellis* (n. 15), should be borne in mind:
+
+Impeded ferials of Advent and Lent are commemorated in Lauds and Vespers. Ember-days and Rogation Monday are only commemorated at Lauds. Common vigils, too, are commemorated at Lauds only. These common ferials and vigils, however, must be commemorated at Matins by means of the ninth Lesson (provided their gospel be not the same as that of the occurring Office), except they be ferials of Advent (excluding ember-days, which have their own gospel).
+
+### Order of Commemorations
+
+**8.** The order to be observed when several commemorations are to be made is as follows:
+
+Sunday;
+day within a privileged octave of the second order;
+double major octave-day;
+double major;
+double minor;
+semi-double;
+day within privileged octave of the third order;
+day within a common octave;
+major ferial;
+common vigil;
+octave day of simple rite;
+simple.
+
+It must be remembered that, in Vespers, the *concurring* Office always comes first (if it is to be commemorated).
+
+### Conclusion of Hymns
+
+**9.** The conclusion of hymns, and the variable verse in the *Responsorium breve* of Prime, must be those of the Office recited. Should that Office have none proper, the conclusion and verse used must be those proper to the Office first commemorated having them. If such feast or simple octave-day or Office of *S. Maria in Sabbato* is not even commemorated in Vespers, its proper conclusions are omitted.
+
+If the conclusion and verse proper to a commemorated Office are wanting, those of the occurring common octave are used, otherwise those that are *de tempore* must be taken.
+
+### New Missal-Rubrics
+
+**10.** The following information is taken from the "*Additiones et Variationes*" in the new typical edition of the Roman Missal approved by a decree of the S. C. R. dated April 25, 1920.
+
+**A. Impeded Feast of Titular:**
+
+If the feast of the Titular or Dedication of one's own church is *accidentally* impeded, on that day one chanted Mass of the impeded feast (or its commemoration in the chanted Mass of the day) is allowed as a Solemn (= privileged) Votive Mass.— *New Missal-Rubrics*, tit. IV., n. 1.
+
+**11.** This one chanted Mass, however, is forbidden:
+
+(a) on all Sundays of the first class;
+(b) on all primary doubles of the first class celebrated in the Universal Church;
+(c) on privileged ferials;
+(d) on the privileged vigils of Christmas and Pentecost;
+(e) on All Souls' Day.
+
+**12.** When this Mass is thus forbidden, it is permitted to add its Oration, *sub unica conclusione*, to the Oration of the Mass of the day except:
+
+(a) on All Souls' Day;
+(b) on Christmas Day;
+(c) on the feast of the Epiphany;
+(d) on the three last days of Holy Week;
+(e) on Easter and Pentecost Sundays;
+(f) on Ascension Thursday;
+(g) on the feasts of the Blessed Trinity and Corpus Christi.
+
+**B. Transferred External Solemnity of Titular and Dedication:**
+
+**13.** Where the external solemnity of the feast of the Titular or Dedication is transferred to the next Sunday, the following rules hold good:
+
+(a) If the Sunday in question is a *minor* Sunday ("per annum") and no double of the first class occurs, then one chanted Mass and one low Mass of the transferred solemnity are permitted.
+
+(b) Should the Sunday in question happen to be a *major* Sunday or a double of the first class, Masses of the external solemnity are altogether prohibited, but the Oration of the impeded transferred solemnity is added, *sub una conclusione*, to the principal Oration, except on the following days:
+
+1st. Easter, Pentecost, and Trinity Sundays;
+2d. Christmas and the Epiphany (should they happen to fall on a Sunday).
+
+*New Missal-Rubrics*, tit. IV., n. 3.
+
+**C. Litany Days:**
+
+On all (= major and minor) Litany Days commemoration of the Rogations must be made in any chanted or low Mass which is not *de Rogationibus* or *de Requie* (Tit. I., n. 3); this is a noteworthy change, as up to the present commemoration of the Rogations was omitted on doubles of the first class occurring on Rogation Tuesday and Wednesday.
+
+N. B. Many other useful and important changes are omitted here for the sole reason that they have not a *direct* bearing on the matter at issue.
+
+A. M. D. G.
+
+---
+
+## INDEX
+
+*(Numbers refer to paragraphs.)*
+
+**ABSOLUTIONS:** 17; in Matins of three Lessons, 23.
+**All Souls' Day:** made equal to Dl. I cl., Append. 6, (a).
+**Antiphons:** 9; when same as first words of ps., 10; at the Little Hours, 39; "ad Laudes et per Horas," 58.
+**Amen:** when is it added to the "Pater," 7.
+**Aperi, Domine:** 12, D.
+**Athanasian Creed:** at Prime, 46.
+
+**BEATIFIED persons:** churches cannot be dedicated to, 73.
+**Beginning:** of an Hour, 7; of Lauds, 26, note.
+**Benedictions:** 17; on ferials, 24.
+**Birthday:** of a saint, 59, note.
+**Breviary:** when forgotten, Append. 5, (a).
+
+**CAPITULUM:** 12, note; "Deo gratias" after, 12, A.
+**Ceremonies:** when reciting the Office, 70.
+**Changes:** some recent, Append. 6 seqq.; in the New Missal, Append. 10 seqq.
+**Church:** consecrated, 73.
+**Commemoratio de Cruce:** 33.
+**Commemorations:** how made, 32; of occurring and concurring Offices, 100; illustration of, 101; rules of, 103 seqq.; in Vespers, 103, (c); of vigils, 104; another plan of, Append., 7; order of, Append., 8; of Litany Days, Append., 13, c.
+**Common Sundays:** 85.
+**Commune Sanctorum:** 5, (e).
+**Compline:** 72; on important feasts, 59.
+
+**Conclusion:** of Orations, 31.
+**Concurrence:** of Offices, 96 seqq.; Breviary table of, 96, note; rules of, 97 seqq.
+**Confitemini,** ps., 36.
+**Confiteor:** 27, note; 68, note.
+**Consecrated church:** 73.
+**Credo:** at beginning of Matins and Prime, 14.
+**Cross:** sign of the, 70.
+
+**DAYS:** of the week, 4; 5, (c).
+**Dates:** 4; 5, (d).
+**Dedication:** meaning of, 74 and 76; office of the, 117.
+**De ea:** meaning of, 4.
+**Deus, in nomine tuo:** ps. at Prime, 59.
+**Dignity:** when comparing two Offices, 88, (d).
+**Divisions:** of the Breviary, 5.
+**Domne:** 17.
+**Dominica:** 4.
+**Dominus regnavit:** in Sunday Prime, 36.
+**Doubles:** 3.
+**Doubling antiphons:** (saying them entire), 9.
+**Doxology:** of hymns, 11; Append., 9.
+
+**ENDING:** of an Hour, 7; of Matins, 22; of Prime, 47.
+**External solemnity of Titular transferred:** Append., 13.
+
+**FEAST:** primary and secondary, 88, c.; dignity of, 88, (c).
+**Feria:** 4; meaning of, 81, note.
+**Ferial Offices:** 4; ninth Lesson from, 19, (b).
+**Feriation:** 81, note; 88, (b), note.
+**Festal Offices,** 4; ninth Lesson from, 19, (a).
+
+**GLORIA PATRI:** after pss., 10; after last Responsorium in each Nocturn, 21 and 25.
+
+**HISTORICAL Lessons,** 18, c.
+**Homily:** 18, B.
+
+---
+
+**Hours:** 6; when they are to be said, 65.
+**Hymns:** 11; rules for conclusion of, Append., 9.
+
+**IMPEDED:** Offices, 83; feast of Titular, Append., 10.
+**Interruption:** of an Hour, 65, (d).
+**Invitatory:** how said, 15.
+
+**LAUDS:** 26 seqq.; of first and second Schemes, 35.
+**Laus tibi, Domine:** 7.
+**Lectio brevis:** of Prime, 43.
+**Lessons:** 18; "Tu autem" after, 12, B; ferial, 25; Matins of three, 23 seqq.; on feasts, 55, (a); on ferials and Sundays, 55, (b); historical, 107.
+**Litany:** on Rogation Days, Append., 5, (b).
+**Little Hours:** 6.
+
+**MAJOR Sundays:** 61; ferials, 62.
+**Mass:** of Titular, 116.
+**Matins:** of nine Lessons, 13 seqq.; of three Lessons, 23 seqq.; ninth Lesson in, 106; Matins and Lauds before Mass, Append., 5, (c).
+**Meter:** of hymns, 11.
+**Missionary:** and Titular of church, 79.
+**Modus ordinarius:** 54.
+**Modus solemnis:** 56; what feasts fall under, 57.
+
+**NEW Rubrics:** in the Office, 76; in the new Missal, Append., 10 seqq.
+**Ninth Lesson:** 19 and 106.
+
+**OCCURRENCE:** meaning of, 81; inclusive and exclusive, 82; rules of, 84 seqq. and 87 seqq.; and octaves, 89 seqq.
+**Octavarium Romanum:** 114, (b).
+**Octave:** feasts having, 3; Office during an, 57, note; privileged, 64, (a); sometimes said "modo solemni," 89 seqq.; common, 64, (b); simple, 64, (c); occurrence and, 89 seqq.; sometimes ceases, 89, (b); days within
+
+---
+
+an, 89, (c) and (d); two octaves occurring in honor of the same person, 89, (g); of Titular, 113.
+
+**Office:** ferial and festal, 4; one in place of another, 66.
+**Omission:** of part of the Office, 67.
+**Orations:** 30 seqq.; on ferials, 30; preceded by "Oremus," 30; in Saturday's Vespers, 30, note; conclusion of, 31.
+**Order:** in Hours of the Office, Append., 3; of Commemorations, Append., 8.
+**Ordinarium:** 5, (a); 54.
+**Oremus:** precedes Orations, 30.
+
+**PATER NOSTER:** its recitation in secret, 7; at end of an Hour, 8.
+**Patron:** meaning of, 75; principal, 109; secondary, 110.
+**Penance:** on ordination to subdeaconship, Append., 4; its obligation, Append., 5, (d).
+**Place:** to read the Office, 69.
+**Position:** in reading Office, 69 and note.
+**Præcedens (officium):** 101; at Vespers, 50, (b).
+**Preces dominicales:** 44.
+**Preces feriales:** 27 seqq.; when said, 28; where said, 29.
+**Preference:** of feasts, 81.
+**Priests:** concerned with Titular and Dedication, 77; parish-priest having more than one church, 78.
+**Primary:** Doubles of first class that are, 85, note; feasts, 88, (c).
+**Prime:** 42 seqq.; fourth ps. in, 36 and 45; "Lectio brevis" of, 43; Athanasian Creed at, 46; ending of, 47; Sunday at, 59; feast-days at, 59.
+**Privileged:** Octaves said "modo solemni," 89, (f).
+**Pronunciation:** when reading Office, 68.
+
+**Proper:** feast that is, 88, (e).
+**Proprium de Tempore:** 5, (c).
+**Proprium Sanctorum:** 5, (d).
+**Psalms:** 9 and 10; in Matins of three Lessons, 23; taken from current day, 54.
+**Psalter:** 5, (b).
+
+**RELIC:** prominent, 88, (e).
+**Responsoria:** examples of, 20.
+**Responsorium breve:** 40.
+**Rite:** 3; of ferials, 4; of days within an octave, 4; in considering two Offices, 88, (a).
+**Rogations:** commemoration of, Append., 13, (c).
+**Rubrics:** 2; in new Missal, Append., 10 seqq.
+
+**SACROSANCTÆ:** 12, D, and note.
+**Saint Thomas of Villanova:** change in sixth Lesson, Append., 6, (b).
+**Scheme:** asterisk (\*) in, 14; of Matins, 13; of Lauds, 26; of Little Hours, 38.
+**Scripture occurring:** 18.
+**Secondary:** feasts, 88, (c); patron, 110.
+**Sedes propria:** of feasts, 83.
+**Sequens (officium):** in Vespers, 50, (a); 101.
+**Sign of the Cross:** in the Office, 70.
+**Simplified:** double, etc., 3, note.
+**Solemnity:** in considering two Offices, 88, (b).
+**Subdeacons:** 12, (c).
+**Subdeaconship:** recitation of Office on day of ordination to, Append., 1 and 2; penance imposed by Bishop, Append., 4.
+**Suffragium:** 33.
+**Sunday:** rank and privileges of, 4; in "Pars aestiva," 13, note; ninth Lesson from, 19, (b); pss. at Prime on, 36; first Vespers of, 50, (c); major, 61; common, 85.
+
+**TE DEUM:** 21 and note; in Offices of three Lessons, 25.
+**Titular:** meaning of, 73; with associate, 109; and Octave, 113; Office of, 114; and Dedication occurring, 117.
+**Transferred:** external solemnity of Titular, Append., 13.
+**Translation:** of feasts, 60 and 81; 90 seqq.; octaves and, 93 seqq.
+
+**VENITE EXSULTEMUS:** 15.
+**Versicle and Response:** 16; in Matins of three Lessons, 23.
+
+**Vespers:** 48 seqq.; first and second, 49; during Lent, 65, (b).
+**Vigil:** ninth Lesson from, 19, (b); privileged, 63; of the Epiphany, 86.
+
+**WEDNESDAY:** two sets of pss. in third Nocturn, 37.
+
+---
+
+PRINTED BY BLASE BENZIGER & CO., INC., NEW YORK

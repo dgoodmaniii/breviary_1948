@@ -1,0 +1,1905 @@
+<!-- p. [unnumbered, recto] -->
+[IMAGE]
+
+## Ludovicus Delmotte
+
+*Dei et Apostolicæ Sedis gratia*
+
+### Episcopus Tornacensis
+
+*Omnibus has visuris salutem in Domino*
+
+CUM juxta tenorem authenticorum S. R. C. decretorum et ad normam Canonis 1390, nulli typographo fas sit librorum liturgicorum in totum vel ex parte editionem suscipere vel evulgare, nisi prius eam Ordinarius loci declaratione munierit, qua de perfecta ejus concordantia cum archetypis Romanis exemplaribus constet; hinc est quod Nos dilectis Filiis Desclée & Sociis in hac nostra civitate Tornacensi, novam editionem liturgicam parantibus, censorem peritum deputavimus, qui collatione facta diligentissime testaretur illam cum authentico suo Originali rite omnino convenire.
+
+Oblatum vero opus absolutum cui titulus: Breviarium Romanum in-18° [Pars Hiemalis] juxta editionem typicam; postquam, ex prædicti censoris testimonio in scriptis obtento, fuimus legitime informati illud cum originalibus a S. R. C. approbatis necnon cum recentioribus decretis ad amussim concordare, excusum approbavimus evulgandique licentiam dedimus, prout per præsentes approbamus ac licentiam damus.
+
+In quorum fidem hasce litteras subsignavimus, sigilloque nostro ac Secretarii nostri chirographo muniri fecimus, Tornaci, die 6ª mensis Junii anno MCMXLII.
+
+L. † S.  ✠ **Ludovicus**, Epus Tornac.
+
+De mandato Illmi ac Rmi DD. Episcopi:
+
+A. Crame, *Can. a Secret.*
+
+---
+
+<!-- p. iij -->
+# PIUS EPISCOPUS
+
+### Servus Servorum Dei
+
+## Ad Perpetuam Rei Memoriam
+
+DIVINO afflatu compositos Psalmos, quorum est in sacris litteris collectio, inde ab Ecclesiæ exordiis non modo mirifice valuisse constat ad fovendam fidelium pietatem, qui offerebant *hostiam laudis semper Deo, id est, fructum labiorum confitentium nomini ejus*¹; verum etiam ex more jam in vetere Lege recepto in ipsa sacra Liturgia divinoque Officio conspicuam habuisse partem. Hinc illa, quam dicit Basilius, nata *Ecclesiæ vox*², atque psalmodia, ejus *hymnodiæ filia*, ut a decessore Nostro Urbano VIII appellatur³, *quæ canitur assidue ante sedem Dei et Agni*, quæque homines, in primis divino cultui addictos docet, ex Athanasii sententia, *qua ratione Deum laudare oporteat quibusque verbis decenter* confiteantur⁴. Pulchre ad rem Augustinus: *Ut bene ab homine laudetur Deus, laudavit se ipse Deus; et quia dignatus est laudare se, ideo invenit homo, quemadmodum laudet eum*⁵.
+
+Accedit quod in Psalmis mirabilis quædam vis inest ad excitandam in animis omnium studia virtutum. Etsi enim *omnis nostra Scriptura, cum vetus tum nova, divinitus inspirata utilisque ad doctrinam, est, ut scriptum habetur;… at Psalmorum liber, quasi paradisus omnium reliquorum* (librorum) *fructus in se continens, cantus edit, et proprios insuper cum ipsis inter psallendum exhibet*. Hæc iterum Athanasius⁶, qui recte ibidem addit: *Mihi quidem videtur, psallenti Psalmos esse instar speculi, ut et seipsum et proprii animi motus in ipsis contempletur, atque ita affectus eos recitet*⁷. Itaque Augustinus in Confessionibus: *Quantum, inquit, flevi in hymnis et canticis tuis suave sonantis Ecclesiæ tuæ vocibus commotus acriter! Voces illæ influebant auribus meis et eliquabatur veritas in cor meum et exæstuabat inde affectus pietatis et currebant lacrimæ et bene mihi erat cum eis*⁸. Etenim, quem non moveant frequentes illi Psalmorum loci, in quibus de immensa majestate Dei, de omnipotentia, de inenarrabili justitia aut bonitate aut clementia de ceterisque infinitis laudibus ejus tam alte prædicatur? Cui non similes sensus inspirent illæ pro acceptis a Deo beneficiis gratiarum actiones, aut pro exspectatis humiles fidentesque preces, aut illi de peccatis clamores pœnitentis animæ? Quem non admiratione psaltes perfundat, cum divinæ benignitatis munera in populum Israël atque in omne hominum genus profecta narrat, cumque cælestis sapientiæ dogmata tradit? Quem denique non amore inflammet adumbrata studiose imago Christi Redemptoris, cujus quidem Augustinus⁹ *vocem in omnibus Psalmis vel psallentem, vel gementem, vel lætantem in spe, vel suspirantem in re* audiebat?
+
+---
+
+¹ *Hebr.*, 13, 15. — ² Homil. in Ps. 1 n. 2. — ³ Bulla «*Divinam psalmodiam*». — ⁴ Epist. ad Marcellinum in interpret. Psalmor. n. 10. — ⁵ In Psalm. 144 n. 1. — ⁶ Epist. ad Marcell. cit. n. 2. — ⁷ Op. cit. n. 12. — ⁸ Lib. IX cap. 6. — ⁹ In Ps. 42 n. 1.
+
+---
+
+<!-- p. iv -->
+ut ad reliquam cogitationem, Breviarii quoque curam adjungerent, instante jam conclusione Concilii, tota res ad auctoritatem judiciumque Romani Pontificis ex decreto ejusdem Concilii relata est: qui illis ipsis Patribus ad id munus delectis, Romam vocatis, nonnullisque in Urbe idoneis viris ad eum numerum adjunctis, rem perficiendam curavit. Verum eo etiam viam universæ carnis ingresso, Nos, ita divina disponente clementia, licet immerito ad Apostolatus apicem assumpti, cum sacrum opus, adhibitis etiam ad id aliis peritis viris, maxime urgeremus, magna in nos Dei benignitate (sic enim accipimus) Romanum hoc Breviarium vidimus absolutum. Cujus ratione dispositionis, ab illis ipsis, qui negotio præpositi fuerant, non semel cognita, cum intelligeremus eos in rei confectione ab antiquis Breviariis nobilium Urbis Ecclesiarum, ac Nostræ Vaticanæ bibliothecæ, non discessisse, gravesque præterea aliquot eo in genere scriptores secutos esse, ac deinde remotis iis quæ aliena et incerta essent, de propria summa veteris divini Officii nihil omisisse: opus probavimus, et Romæ imprimi, impressumque divulgari jussimus. Itaque ut divini hujus operis effectus re ipsa consequatur, auctoritate præsentium tollimus in primis et abolemus Breviarium novum a Francisco Cardinale prædicto editum, et in quacumque Ecclesia, Monasterio, Conventu, Ordine, Militia, et loco virorum et mulierum, etiam exempto, tam a primæva institutione, quam aliter ab hac Sede permissum: Ac etiam abolemus quæcumque alia Breviaria, vel antiquiora, vel quovis privilegio munita, vel ab Episcopis in suis Diœcesibus pervulgata, omnemque illorum usum de omnibus orbis Ecclesiis, Monasteriis, Conventibus, Militiis, Ordinibus, et locis virorum et mulierum, etiam exemptis, in quibus alias Officium divinum Romanæ Ecclesiæ ritu diei consuevit, aut debet: illis tamen exceptis, quæ ab ipsa prima institutione, a Sede Apostolica approbata, vel consuetudine, quæ vel ipsa institutio, ducentos annos antecedat, aliis certis Breviariis usa fuisse constiterit: quibus ut inveteratum illud jus dicendi et psallendi suum Officium non adimimus, sic eisdem, si forte hoc Nostrum, quod modo pervulgatum est, magis placeat, dummodo Episcopus et universum Capitulum in eo consentiant, ut id in Choro dicere et psallere possint, permittimus. Omnes vero, et quascumque Apostolicas et alias permissiones ac consuetudines, et statuta etiam juramento, confirmatione Apostolica, vel alia firmitate munita, necnon privilegia, licentias et indulta precandi et psallendi, tam in Choro quam extra illum, more et ritu Breviariorum sic suppressorum, prædictis Ecclesiis, Monasteriis, Conventibus, Militiis, Ordinibus et locis, necnon S. R. E. Cardinalibus, Patriarchis, Archiepiscopis, Episcopis, Abbatibus, et aliis Ecclesiarum Prælatis, ceterisque omnibus et singulis personis Ecclesiasticis, sæcularibus, et regularibus, utriusque sexus, quacumque causa concessa, approbata, et innovata, quibuscumque concepta formulis, ac decretis, et clausulis roborata, omnino revocamus: volumusque illa omnia vim et effectum de cetero
+
+---
+
+<!-- p. v -->
+non habere. Omni itaque alio usu quibuslibet, ut dictum est, interdicto, hoc Nostrum Breviarium, ac precandi psallendique formulam in omnibus universi orbis Ecclesiis, Monasteriis, Ordinibus, et locis etiam exemptis, in quibus Officium ex more et ritu dictæ Romanæ Ecclesiæ dici debet, aut consuevit, salva prædicta institutione, vel consuetudine prædictos ducentos annos superante, præcipimus observari: Statuentes Breviarium ipsum nullo unquam tempore vel totum, vel ex parte mutandum, vel ei aliquid addendum, vel omnino detrahendum esse: ac quoscumque, qui Horas Canonicas ex more et ritu ipsius Romanæ Ecclesiæ, jure vel consuetudine dicere vel psallere debent, propositis pœnis per Canonicas sanctiones constitutis in eos, qui divinum Officium quotidie non dixerint, ad dicendum et psallendum posthac in perpetuum Horas ipsas diurnas et nocturnas, ex hujus Romani Breviarii præscripto et ratione omnino teneri: neminemque ex iis, quibus hoc dicendi psallendique munus necessario impositum est, nisi hac sola formula satisfacere posse. Jubemus igitur, omnes et singulos Patriarchas, Archiepiscopos, Episcopos, Abbates, et ceteros Ecclesiarum Prælatos, ut omissis quæ sic suppressimus et abolevimus, ceteris omnibus etiam privatim per eos constitutis, Breviarium hoc in suis quisque Ecclesiis, Monasteriis, Conventibus, Ordinibus, Militiis, Diœcesibus, et locis prædictis introducant: et tam ipsi quam ceteri omnes presbyteri et clerici, sæculares et regulares, utriusque sexus, necnon milites et exempti, quibus Officium dicendi et psallendi quomodocumque, sicut prædicitur, injunctum est, ut ex hujus nostri Breviarii formula, tam in Choro quam extra illum, dicere et psallere procurent. Quod vero in Rubricis Nostri hujus Officii præscribitur, quibus diebus Officium beatæ Mariæ semper Virginis, et Defunctorum, item Septem Psalmos Pœnitentiales et Graduales dici ac psalli oporteat: Nos propter varia hujus vitæ negotia, multorum occupationibus indulgentes, peccati quidem periculum ab ea præscriptione removendum duximus, verum debito providentiæ pastoralis admoniti, omnes vehementer in Domino cohortamur, ut remissionem Nostram, quantum fieri poterit, sua devotione ac diligentia præcurrentes, illis etiam precibus, suffragiis et laudibus, suæ et aliorum saluti consulere studeant. Atque ut fidelium voluntas ac studium magis etiam ad salutarem hanc consuetudinem incitetur, de omnipotentia Dei misericordia beatorumque Petri et Pauli Apostolorum ejus auctoritate confisi, omnibus, qui illis ipsis diebus, in Rubricis præfinitis, beatæ Mariæ, vel Defunctorum Officium dixerint, toties centum dies; qui vero Septem Psalmos, vel Graduales, quinquaginta, de injuncta ipsis pœnitentia relaxamus. Hoc autem concedimus sine præjudicio sanctæ consuetudinis illarum Ecclesiarum, in quibus Officium parvum beatæ Mariæ semper Virginis in Choro dici consueverat, ita ut in prædictis Ecclesiis servetur ipsa laudabilis et sancta consuetudo celebrandi more solito prædictum Officium. Ceterum, ut præsentes litteræ omnibus plenius innotescant, mandamus illas ad valvas Basilicæ
+
+N° 28 B. — H. *b*
+
+---
+
+<!-- p. vj -->
+Principis Apostolorum de Urbe, et Cancellariæ Apostolicæ, et in acie Campi Floræ publicari, earumque exemplar de more affigi. Volumusque, et Apostolica auctoritate decernimus, quod post hujusmodi publicationem, qui in Romana Curia sunt præsentes, statim lapso mense: reliqui vero, qui intra montes, tribus; et qui ultra ubique locorum degunt, sex mensibus excursis, vel cum primum venalium hujus Breviarii voluminum facultatem habuerint, ad precandum et psallendum juxta illius ritum, tam in Choro quam extra illum, maneant obligati. Ipsarum autem litterarum exempla manu Notarii publici, et sigillo alicujus Prælati Ecclesiastici, aut illius curiæ obsignata, vel etiam ipsis voluminibus absque prædicto, vel alio quopiam adminiculo Romæ impressa, eamdem ubique locorum fidem faciant, quam ipsæ præsentes, si essent exhibitæ vel ostensæ. Sed ut Breviarium ipsum ubique inviolatum et incorruptum habeatur, prohibemus, ne alibi usquam in toto orbe, sine Nostra, vel specialis ad id Commissarii Apostolici, in singulis Christiani orbis regnis et provinciis deputandi, expressa licentia imprimatur, proponatur, vel recipiatur. Quoscumque vero, qui illud secus impresserint, proposuerint vel receperint, excommunicationis sententia eo ipso innodamus. Nulli ergo omnino hominum liceat hanc paginam Nostræ ablationis, abolitionis, permissionis, revocationis, jussionis, præcepti, statuti, indulti, mandati, decreti, relaxationis, cohortationis, prohibitionis, innodationis, et voluntatis infringere, vel ei ausu temerario contraire. Si quis autem hoc attentare præsumpserit, indignationem omnipotentis Dei, ac beatorum Petri et Pauli Apostolorum ejus se noverit incursurum.
+
+Datum Romæ apud S. Petrum, anno Incarnationis Domini MDLVIII septimo Idus Julii, Pontificatus Nostri anno tertio.
+
+M. Dat.  CÆS. GLORIERIUS.  H. CUMYN.
+
+ANNO a Nativitate Domini millesimo quingentesimo sexagesimo octavo, Indictione undecima, die vero decima quinta mensis Julii, Pontificatus Sanctissimi in Christo Patris, et D. N. D. Pii divina providentia Papæ quinti anno tertio, retroscriptæ litteræ Apostolicæ lectæ, affixæ et publicatæ fuerunt ad valvas Basilicæ Principis Apostolorum de Urbe, Cancellariæ Apostolicæ, et in acie Campi Floræ, dimissis ibidem præsentibus litteris per aliquantulum temporis spatium, ut moris est, affixis, et deinde amotis per nos Julium Parinum et Joannem Bornotum, prælibati Ss. D. N. Papæ Cursores.
+
+ANTONIUS CLERICI, *Magister Cursorum.*
+
+—»o«—
+
+---
+
+<!-- p. vij -->
+# PIUS EPISCOPUS
+
+### Servus Servorum Dei
+
+## Ad Perpetuam Rei Memoriam
+
+DIVINO afflatu compositos Psalmos, quorum est in sacris litteris collectio, inde ab Ecclesiæ exordiis non modo mirifice valuisse constat ad fovendam fidelium pietatem, qui offerebant *hostiam laudis semper Deo, id est, fructum labiorum confitentium nomini ejus*¹; verum etiam ex more jam in vetere Lege recepto in ipsa sacra Liturgia divinoque Officio conspicuam habuisse partem. Hinc illa, quam dicit Basilius, nata *Ecclesiæ vox*², atque psalmodia, ejus *hymnodiæ filia*, ut a decessore Nostro Urbano VIII appellatur³, *quæ canitur assidue ante sedem Dei et Agni*, quæque homines, in primis divino cultui addictos docet, ex Athanasii sententia, *qua ratione Deum laudare oporteat quibusque verbis decenter* confiteantur⁴. Pulchre ad rem Augustinus: *Ut bene ab homine laudetur Deus, laudavit se ipse Deus; et quia dignatus est laudare se, ideo invenit homo, quemadmodum laudet eum*⁵.
+
+Accedit quod in Psalmis mirabilis quædam vis inest ad excitandam in animis omnium studia virtutum. Etsi enim *omnis nostra Scriptura, cum vetus tum nova, divinitus inspirata utilisque ad doctrinam, est, ut scriptum habetur;… at Psalmorum liber, quasi paradisus omnium reliquorum* (librorum) *fructus in se continens, cantus edit, et proprios insuper cum ipsis inter psallendum exhibet*. Hæc iterum Athanasius⁶, qui recte ibidem addit: *Mihi quidem videtur, psallenti Psalmos esse instar speculi, ut et seipsum et proprii animi motus in ipsis contempletur, atque ita affectus eos recitet*⁷. Itaque Augustinus in Confessionibus: *Quantum, inquit, flevi in hymnis et canticis tuis suave sonantis Ecclesiæ tuæ vocibus commotus acriter! Voces illæ influebant auribus meis et eliquabatur veritas in cor meum et exæstuabat inde affectus pietatis et currebant lacrimæ et bene mihi erat cum eis*⁸. Etenim, quem non moveant frequentes illi Psalmorum loci, in quibus de immensa majestate Dei, de omnipotentia, de inenarrabili justitia aut bonitate aut clementia de ceterisque infinitis laudibus ejus tam alte prædicatur? Cui non similes sensus inspirent illæ pro acceptis a Deo beneficiis gratiarum actiones, aut pro exspectatis humiles fidentesque preces, aut illi de peccatis clamores pœnitentis animæ? Quem non admiratione psaltes perfundat, cum divinæ benignitatis munera in populum Israël atque in omne hominum genus profecta narrat, cumque cælestis sapientiæ dogmata tradit? Quem denique non amore inflammet adumbrata studiose imago Christi Redemptoris, cujus quidem Augustinus⁹ *vocem in omnibus Psalmis vel psallentem, vel gementem, vel lætantem in spe, vel suspirantem in re* audiebat?
+
+---
+
+¹ *Hebr.*, 13, 15. — ² Homil. in Ps. 1 n. 2. — ³ Bulla «*Divinam psalmodiam*». — ⁴ Epist. ad Marcellinum in interpret. Psalmor. n. 10. — ⁵ In Psalm. 144 n. 1. — ⁶ Epist. ad Marcell. cit. n. 2. — ⁷ Op. cit. n. 12. — ⁸ Lib. IX cap. 6. — ⁹ In Ps. 42 n. 1.
+
+---
+
+<!-- p. viij -->
+Jure igitur optimo provisum est antiquitus, et per decreta Romanorum Pontificum, et per canones Conciliorum, et per monasticas leges, ut homines ex utroque clero integrum Psalterium per singulas hebdomadas concinerent vel recitarent. Atque hanc quidem legem a patribus traditam decessores Nostri S. Pius V, Clemens VIII, Urbanus VIII in recognoscendo Breviario Romano sancte servarunt. Unde etiam nunc Psalterium intra unius hebdomadæ spatium recitandum foret integrum, nisi mutata rerum conditione talis recitatio frequenter impediretur.
+
+Etenim procedente tempore continenter crevit inter fideles eorum hominum numerus, quos Ecclesia, mortali vita defunctos, cælicolis accensere et populo christiano patronos et vivendi duces consuevit proponere. In ipsorum vero honorem Officia de Sanctis sensim propagari cœperunt, unde fere factum est, ut de Dominicis diebus deque Feriis Officia silerent, ideoque non pauci neglegerentur Psalmi, qui sunt tamen, non secus ac ceteri, ut Ambrosius ait¹, *benedictio populi, Dei laus, plebis laudatio, plausus omnium, sermo universorum, vox Ecclesiæ, fidei canora confessio, auctoritatis plena devotio, libertatis lætitia, clamor jucunditatis, lætitiæ resultatio*. De hujusmodi autem omissione non semel graves fuerunt prudentum piorumque virorum querimoniæ, quod non modo hominibus sacri ordinis tot subtraherentur præsidia ad laudandum Dominum et ad intimos animi sensus ei significandos aptissima: sed etiam quod optabilis illa in orando varietas desideraretur, ad digne, attente, devote precandum imbecillitati nostræ quam maxime opportuna. Nam, ut Basilius habet, *in æqualitate torpescit sæpe, nescio quomodo, animus, atque præsens absens est: mutatis vero et variatis psalmodia et cantu per singulas horas, renovatur ejus desiderium et attentio instauratur*².
+
+Minime igitur mirum, quod complures e diversis orbis partibus sacrorum Antistites sua in hanc rem vota ad Apostolicam Sedem detulerunt, maximeque in Concilio Vaticano, cum hoc inter cetera postularunt, ut, quoad posset, revocaretur consuetudo vetus recitandi per hebdomadam totum Psalterium, ita tamen ut clero, in sacri ministerii vinea ob imminutum operariorum numerum jam gravius laboranti, non majus imponeretur onus. Hisce vero postulationibus et votis, quæ Nostra quoque ante susceptum Pontificatum fuerant, itemque precibus, quæ deinceps ab aliis Venerabilibus Fratribus piisque viris admotæ sunt, Nos equidem concedendum duximus, cauto tamen, ne recitatione integri Psalterii hebdomadæ spatio conclusa, ex una parte quicquam de Sanctorum cultu decederet, neve ex altera molestius Divini Officii onus clericis, immo temperatius evaderet. Quapropter, implorato suppliciter *Patre luminum*, corrogatisque in id ipsum suffragiis sanctarum precum, Nos vestigiis insistentes decessorum Nostrorum, aliquot viros delegimus doctos et industrios, quibus commisimus, ut consiliis studiisque collatis certam aliquam reperirent rei efficiendæ rationem, quæ Nostris optatis responderet.
+
+¹ Enarrat. in Ps. 1 n. 9. — ² Regulæ fusius tractatæ interrog. 37 n. 5.
+
+---
+
+<!-- p. ix -->
+Illi autem commissum sibi munus e sententia exsequentes novam Psalterii dispositionem elaborarunt; quam cum S. R. E. Cardinales sacris ritibus cognoscendis præpositi diligenter consideratam probassent, Nos, utpote cum mente Nostra admodum congruentem, ratam habuimus in rebus omnibus, id est, quod ad ordinem partitionem Psalmorum, ad Antiphonas, ad Versiculos, ad Hymnos attinet cum suis Rubricis et Regulis, ejusque editionem authenticam in Nostra typographia Vaticana adornari et indidem evulgari jussimus.
+
+Quoniam vero Psalterii dispositio intimam quamdam habet cum omni Divino Officio et Liturgia conjunctionem, nemo non videt, per ea, quæ hic a Nobis decreta sunt, primum Nos fecisse gradum ad Romani Breviarii et Missalis emendationem: sed super tali causa proprium mox Consilium seu Commissionem, ut ajunt, eruditorum constituemus. Interim, opportunitatem hanc nacti, nonnulla jam in præsenti instauranda censuimus, prout in appositis Rubricis præscribitur: atque imprimis quidem ut in recitando Divino Officio Lectionibus statutis sacræ Scripturæ cum Responsoriis de tempore occurrentibus debitus honor frequentiore usu restitueretur; dein vero ut in sacra Liturgia Missæ antiquissimæ de Dominicis infra annum et de Feriis, præsertim quadragesimalibus, locum suum recuperarent.
+
+Itaque, harum auctoritate litterarum ante omnia Psalterii ordinem, qualis in Breviario Romano hodie est, abolemus ejusque usum, inde a Kalendis Januariis anni millesimi nongentesimi decimi tertii, omnino interdicimus. Ex illo autem die in omnibus ecclesiis Cleri sæcularis et regularis, in monasteriis, ordinibus, congregationibus, institutisque religiosorum ab omnibus et singulis, qui ex officio aut ex consuetudine Horas canonicas juxta Breviarium Romanum, a S. Pio V editum et a Clemente VIII, Urbano VIII, Leone XIII recognitum, persolvunt, novum Psalterii ordinem, qualem Nos cum suis Regulis et Rubricis approbavimus typisque Vaticanis vulgandum decrevimus, religiose observari jubemus. Simul vero pœnas in jure statutas iis denuntiamus, qui suo officio persolvendi quotidie Horas canonicas defuerint; qui quidem sciant se tam gravi non satisfacturos officio, nisi Nostrum hunc Psalterii ordinem adhibeant.
+
+Omnibus igitur Patriarchis, Archiepiscopis, Episcopis, Abbatibus ceterisque ecclesiarum Prælatis, ne Cardinalibus quidem Archipresbyteris patriarchalium Urbis basilicarum exceptis, mandamus, ut in sua quisque diœcesi, ecclesia vel cœnobio Psalterium cum Regulis et Rubricis, quemadmodum a Nobis dispositum est, constituto tempore inducendum curent: quod Psalterium quasque Regulas et Rubricas etiam a ceteris omnibus, quoscumque obligatio tenet recitandi vel concinendi Horas canonicas, inviolate adhiberi ac servari præcipimus. Interim autem cuilibet et capitulis ipsis, modo id major capituli pars sibi placere ostenderit, novum Psalterii ordinem, statim post ejus editionem, rite usurpare licebit.
+
+---
+
+<!-- p. x -->
+Hæc vero edicimus, declaramus, sancimus, decernentes has Nostras litteras validas et efficaces semper esse ac fore; non obstantibus constitutionibus et ordinationibus apostolicis, generalibus et specialibus, ceterisve quibusvis in contrarium facientibus. Nulli ergo hominum liceat hanc paginam Nostræ abolitionis, revocationis, permissionis, jussionis, præcepti, statuti, indulti, mandati et voluntatis infringere, vel ei ausu temerario contraire. Si quis autem hoc attentare præsumpserit, indignationem omnipotentis Dei, ac beatorum Petri et Pauli, Apostolorum ejus, se noverit incursurum.
+
+Datum Romæ apud S. Petrum anno Incarnationis Dominicæ millesimo nongentesimo undecimo, Kalendis Novembribus in festo Sanctorum omnium, Pontificatus Nostri anno nono.
+
+A. CARD. AGLIARDI  FR. SEB. CARD. MARTINELLI
+
+*S. R. E. Cancellarius.*  *S. R. C. Præfectus.*
+
+Loco ✚ Plumbi  VISA
+
+M. RIGGI C. A., *Not.*
+
+*Reg. in Canc. Ap. N. 571.*
+
+---
+
+## DE ANNO ET EJUS PARTIBUS
+
+ANNUS menses habet duodecim, hebdomadas duas et quinquaginta, et diem unum: dies vero trecentos sexaginta quinque, et fere sex horas; tanto enim temporis intervallo sol Zodiacum perlustrat. Quater autem sex horæ singulis quaternis annis diem constituunt; hinc annus ille intercalaris, Bissextus vel Bissextilis dicitur.
+
+### De anni correctione ejusque necessitate, ac Kalendario gregoriano
+
+QUOD dictum est, annum continere trecentos et sexaginta quinque dies, et fere sex horas, intelligendum est sex horas non esse integras, cum ad earum complementum aliqua minuta deficiant.
+
+Ex quorum minutorum neglectu progressum est, ac si annus ultra dies 365 contineret integras sex horas: et factum est, ut minuta, quæ ultra debitam quantitatem annis singulis tribuebantur, tractu temporis ita excreverint, ut invicem juncta constituerint dies decem; qui causam dederunt ut Æquinoctium vernum sedem suam mutaverit.
+
+Cui malo occurrens Gregorius XIII, non solum Æquinoctium vernum restituit in pristinam sedem, a qua jam a Concilio Nicæno, decem circiter diebus in anno correctionis 1582 præcedendo recesserat, quod a Concilio ad xij Kalendas Aprilis fuerat constitutum, et xiv Lunam Paschalem suo in loco reposuit; sed viam quoque tradidit et rationem, qua caveretur ut in posterum et Æquinoctium vernum et xiv Luna Paschalis a
+
+---
+
+<!-- p. xj -->
+propriis sedibus numquam removerentur.
+
+Ut enim Æquinoctium vernum ad xij Kalendas Aprilis restitueretur, statuit ut dicti decem dies in mense Octobris ipsius anni 1582 eximerentur; ut post quartam diem Octobris sanctum Franciscum sacram, sequens dies non esset quinta, sed decima quinta Octobris. Et ita error, qui in præteritum tot annorum circulis irrepserat, in momento temporis fuit correctus.
+
+Ut autem in posterum idem error vitaretur, ne a xij Kalendis Aprilis Æquinoctium vernum recederet, statuit idem Gregorius, Bissextum quarto quoque anno (ut mos est) continuari debere, præterquam in centesimis annis: qui quamvis Bissextiles antea semper fuerint, qualem etiam esse voluit annum 1600 anno correctionis proximum, post eum tamen qui deinceps consequentur centesimi, non omnes Bissextiles essent, sed in quadringentis quibusque annis primi quique tres centesimi sine Bissexto transigerentur; quartus vero quisque centesimus esset Bissextilis, ita ut annus 1700, 1800, 1900 Bissextiles non sint, anno vero 2000 more consueto dies Bissextus intercaletur, Februario dies 29 continente; idemque ordo intermittendi intercalandique Bissextum diem in quadringentis quibusque annis perpetuo conservaretur.
+
+### Quatuor Tempora
+
+QUATUOR Tempora celebrantur quarta et sexta Feria ac Sabbato post tertiam Dominicam Adventus, post primam Dominicam Quadragesimæ, post Dominicam Pentecostes, post Festum Exaltationis sanctæ Crucis.
+
+### De nuptiarum celebratione
+
+MATRIMONIUM quolibet anni tempore contrahi potest. — 2 Solemnis tantum Nuptiarum benedictio vetatur a Dominica I Adventus usque ad diem Nativitatis Domini inclusive, et a Feria IV Cinerum usque ad Dominicam Paschatis inclusive. — 3 Ordinarii tamen locorum possunt, salvis legibus liturgicis, etiam prædictis temporibus, eam permittere ex justa causa, monitis sponsis ut a nimia pompa abstineant.
+
+### De cyclo decennovennali Aurei numeri
+
+CYCLUS decennovennalis Aurei numeri est revolutio numeri 19 annorum ab 1 usque ad 19, qua revolutione peracta, iterum ad unitatem reditur. Verbi gratia: Anno 1577 numerus cycli decennovennalis, qui dicitur Aureus, est 1; anno sequenti 1578 est 2; et ita deinceps in sequentibus annis, uno semper amplius, usque ad 19, qui Aureus numerus cadet in annum 1595, post quem iterum ad unitatem redeundum est, ita ut anno 1596 Aureus numerus sit rursus 1, et anno 1597 sit 2, etc.
+
+Igitur ut Aureus numerus quolibet anno proposito inveniatur, composita est sequens tabella Aureorum numerorum, cujus usus incipit ab anno correctionis 1582 inclusive, duratque in perpetuum. Ex ea enim Aureus numerus cujuslibet anni post annum 1582 reperietur hoc modo.
+
+6, 7, 8, 9, 10, 11, 12, 13, 14,
+15, 16, 17, 18, 19, 1, 2, 3, 4, 5.
+
+---
+
+<!-- GAP: pages xij–xiij not present in scan; jumps from xj directly to xiv -->
+
+<!-- p. xiv -->
+### Alia Tabella Epactarum respondentium Aureis numeris ab anno 1700 inclusive, usque ad annum 1900 exclusive
+
+| Aur. num. | 10 | 11 | 12 | 13 | 14 | 15 |
+|---|---|---|---|---|---|---|
+| Epactæ | ix | xx | j | xij | xxiij | iv |
+
+| 16 | 17 | 18 | 19 | 1 | 2 | 3 |
+|---|---|---|---|---|---|---|
+| xv | xxvj | vij | xviij | * | xj | xxij |
+
+| 4 | 5 | 6 | 7 | 8 | 9 |
+|---|---|---|---|---|---|
+| iij | xiv | xxv | vj | xvij | xxviij |
+
+### Alia Tabella Epactarum respondentium Aureis numeris ab anno 1900 inclusive, usque ad annum 2200 exclusive
+
+| Aur. n. | 1 | 2 | 3 | 4 | 5 | 6 |
+|---|---|---|---|---|---|---|
+| Epactæ | xxix | x | xxj | ij | xiij | xxiv |
+
+| 7 | 8 | 9 | 10 | 11 | 12 | 13 |
+|---|---|---|---|---|---|---|
+| v | xvj | xxvij | viij | xix | * | xj |
+
+| 14 | 15 | 16 | 17 | 18 | 19 |
+|---|---|---|---|---|---|
+| xxij | iij | xiv | 25 | vj | xvij |
+
+Ad tollendam dubitationem de usu hujus novæ tabellæ Epactarum, ostendemus rem exemplis. Anno 1901 tribuatur Epacta x, quæ sub Aureo numero 2 collocatur: fietque Novilunium 21 Januarii, 19 Februarii, 21 Martii. Item anno 1902 tribuatur Epacta xxj sub Aureo numero 3 collocata, quæ toto eo anno in Kalendario Novilunia monstrabit: ut in Januario die 10, in Februario die 8, in Martio die 10. Et sic deinceps per ordinem annis progredientibus, redeundo ad principium tabellæ quotiescumque eam percurreris. Rursus anno 1911. Epacta non signatur numero, sed hoc signo *, quod collocatur sub Aureo numero 12, et in Kalendario toto eo anno Novilunia indicabit, nimirum in Januario die 1 et 31, in Martio (nam in Februario nullum tunc Novilunium, cum in eo signum hoc * non reperiatur) die 1 et 31, in Aprili die 29, etc.
+
+Postremo: Anno 1916 Aureus numerus est 17, sub quo in ordine Epactarum quartæ tabellæ, quæ proposito anno congruit, reperitur Epacta 25 non antiquo numero, ut aliæ Epactæ, sed vulgari numero scripta. Ubicumque ergo anno 1916 in Kalendario Epacta 25 vulgari numero scripta reperitur, ibi Novilunium fit, ut in Januario die 6, in Februario die 4, in Martio die 6, in Aprili die 4, etc. Quotiescumque enim Epacta 25 respondet Aureis numeris majoribus quam 11, quales sunt posteriores octo a 12 usque ad 19, sumenda est in Kalendario Epacta 25 vulgari numero scripta; quando vero eadem Epacta respondet minoribus numeris quam 12, quales sunt priores undecim, ab 1 ad 11 inclusive, accipienda est in Kalendario Epacta xxv antiquo numero scripta; atque hoc solum contingit in Epacta 25, in aliis numquam; quod ideo fit, ut anni lunares solaribus annis perfectius respondeant. Ob quam etiam causam in sex locis Kalendarii duæ Epactæ, scilicet xxv et xxiv sunt adscriptæ.
+
+### Tabella litterarum Dominicalium ab Idibus Octobris anni correctionis 1582 (detractis prius decem diebus) usque ad annum 1700 exclusive
+
+| c | b | **A**<br>g | f | e | d | c<br>b |
+|---|---|---|---|---|---|---|
+
+---
+
+<!-- p. xv -->
+| **A** | g | f | e<br>d | c | b | **A** |
+|---|---|---|---|---|---|---|
+| g<br>f | e | d | c | b<br>**A** | g | f |
+| e<br>d | c | b | **A** | g | f<br>e | d |
+
+Usus hujus tabellæ hic est: Anno correctionis 1582 post Idus Octobris (detractis prius decem diebus) tribuatur littera c primæ cellulæ, et sequenti anno 1583 littera b secundæ, et anno 1584 dentur litteræ **A** g tertiæ cellulæ, et sic deinceps aliis annis ordine aliæ cellulæ tribuantur, donec ad annum propositum perventum sit, redeundo ad principium tabellæ, quotiescumque eam percurreris. Nam cellula, in quam annus propositus cadit, dummodo minor sit quam annus 1700, dabit litteram Dominicalem propositi anni. Quæ si unica occurrerit, annus erit communis; si vero duplex, Bissextilis: et tunc superior littera Dominicam diem ostendet in Kalendario a principio anni usque ad festum S. Matthiæ Apostoli, inferior autem ab hoc Festo usque ad finem anni.
+
+Exempli gratia: Sit invenienda littera Dominicalis anno 1587. Numera ab anno 1582, quem tribue primæ litteræ c, usque ad annum 1587, tribuendo singulis cellulis singulos annos (computando geminas litteras quascumque, superiorem et inferiorem, pro una cellula), cadetque annus 1587 in litteram d, quæ sextum locum in tabella occupat. Est ergo toto eo anno littera Dominicalis d, annusque communis est, cum littera simplex occurrat. Rursus sit investiganda littera Dominicalis anni 1616. Numera ab anno 1582, ut dictum est, usque ad annum 1616, redeundo ad principium tabellæ hic est, postquam eam percurreris, perveniesque ad duas hasce litteras c b, septimo loco positas. Est ergo annus ille Bissextilis, cum duplex littera occurrat, superiorque littera c Dominicam diem indicabit a principio anni illius usque ad festum S. Matthiæ, inferior autem b in reliqua parte anni.
+
+### Alia Tabella litterarum Dominicalium ab anno 1901 inclusive, usque ad annum 2100 exclusive
+
+| f | e | d | c<br>b | **A** | g | f |
+|---|---|---|---|---|---|---|
+| e<br>d | c | b | **A**<br>g | f | e | d |
+| c | b<br>**A** | g | f | e | d<br>c | b |
+| **A** | g | f<br>e | d | c | b | **A**<br>g |
+
+Usus autem hujus tabellæ hic est: Anno 1901 tribuatur litera f primæ cellulæ, et sequenti anno 1902 littera e, et sic deinceps ceteris annis ordine aliæ cellulæ tribuantur, donec ad annum propositum perventum sit, redeundo ad principium tabellæ quotiescumque eam percurreris; nam cellula, in quam annus propositus cadit, dabit litteram Dominicalem propositi anni: quæ si unica occurrerit, annus erit communis; si vero duplex, Bissextilis: et tunc superior littera Dominicam diem ostendet in Kalendario a principio anni usque ad Festum S. Matthiæ Apostoli, inferior autem ab hoc Festo usque ad finem anni.
+
+---
+
+<!-- p. xvj -->
+### De Indictione
+
+INDICTIO est revolutio 15 annorum ab 1 usque ad 15, qua revolutione peracta, iterum reditur ad unitatem, initiumque sumit quilibet annus hujus cycli a Januario in Bullis Pontificis. Et quoniam Indictionum frequens usus est in Diplomatibus et Scripturis publicis, facile annum Indictionis currentem quolibet anno proposito inveniemus ex sequenti tabella, cujus usus perpetuus est: initium tamen sumit ab anno correctionis 1582.
+
+### Tabella Indictionis ab anno correctionis 1582
+
+10, 11, 12, 13, 14, 15, 1,
+2, 3, 4, 5, 6, 7, 8, 9,
+
+Nam si anno 1582 tribuas primum numerum, qui est 10, et sequenti anno 1583 secundum numerum, qui est 11, et sic deinceps usque ad annum propositum, redeundo ad principium tabellæ, quotiescumque eam percurreris, cadet annus propositus in Indictionem quæ quæritur.
+
+### De Festis Mobilibus
+
+QUONIAM ex decreto sacri Concilii Nicæni Pascha, ex quo reliqua Festa mobilia pendent, celebrari debet die Dominico, qui proxime succedit xiv Lunæ primi mensis (is vero apud Hebræos vocatur primus mensis, cujus xiv Luna vel cadit in diem verni Æquinoctii, quod 21 mensis Martii contingit vel propius ipsum sequitur), efficitur, ut si Epacta cujusvis anni inveniatur, et ab ea in Kalendario notata inter diem octavum Martii inclusive, et quintum Aprilis inclusive (hujus enim Epactæ xiv Luna cadit vel in diem Æquinoctii verni, id est, in diem 21 Martii, vel eum propius sequatur), numerentur inclusive deorsum versus dies quatuordecim; proximus dies Dominicus diem hunc xiv sequens (ne cum Judæis conveniamus, si forte dies xiv Lunæ caderet in diem Dominicum) sit dies Paschæ.
+
+Exemplum: Anno 1605 Epacta est x et littera Dominicalis b. Et quoniam invenimus Epactam x inter diem 8 Martii et 5 Aprilis inclusive positam esse e regione diei 21 Martii, a quo inclusive, si deorsum versus numerentur 14 dies, inveniemus xiv Lunam die 3 Aprilis, quæ est Dominica, cum e regione illius sit littera Dominicalis b. Ne igitur cum Judæis conveniamus, qui Pascha celebrant die xiv Lunæ, sumenda est littera Dominicalis b, quæ sequitur xiv Lunam, nempe ea quæ e regione diei 10 Aprilis collocatur: atque eo anno Pascha celebrandum erit die 10 Aprilis. Item anno 1604 Epacta est xxix et duplex littera Dominicalis d c, cum annus ille sit Bissextilis. Si igitur ab Epacta xxix, quæ e regione diei 1 Aprilis ponitur inter diem 8 Martii et 5 Aprilis inclusive, numerentur dies 14, cadet xiv Luna in diem 14 Aprilis. Et quia tunc currit posterior littera Dominicalis, nempe c, quæ post diem 14 Aprilis, id est, post xiv Lunam collocata est e regione diei 18 Aprilis, celebrabitur eo anno Pascha die 18 Aprilis.
+
+Ceterum ut facilius omnia Festa mobilia inveniantur, compositæ sunt duæ sequentes tabulæ Paschales, una antiqua, et nova altera. Ex antiqua ita Festa mobilia reperientur: In latere
+
+---
+
+<!-- p. xvij -->
+sinistro tabulæ accipiatur Epacta currens, et in linea litterarum Dominicalium sumatur littera Dominicalis currens, infra tamen Epactam currentem, ita ut si littera Dominicalis currens reperiatur e regione Epactæ currentis, assumenda sit eadem littera Dominicalis proxime inferior. Nam e regione litteræ Dominicalis omnia Festa mobilia continentur.
+
+Exemplum: Anno 1606 Epacta est xxj et littera Dominicalis **A**. Si igitur in tabula antiqua sumatur littera Dominicalis **A**, quæ primo infra Epactam xxj occurrit, reperietur e regione hujus litteræ Dominica Septuagesimæ die 22 Januarii, dies Cinerum 8 Februarii, Pascha 26 Martii, Ascensio Domini 4 Maji, Pentecostes 14 Maji, et Festum Corporis Christi 25 Maji. Dominicæ autem inter Pentecosten et Adventum eo anno erunt 28, et Adventus celebrabitur die 3 Decembris; et sic de ceteris. Item anno 1605 Epacta est x et littera Dominicalis b, quæ in tabula reperitur a regione Epactæ x. Quare sumenda est alia littera b, quæ proxime infra Epactam invenitur, e regione cujus invenies Septuagesimam die 6 Februarii, diem Cinerum 23 Februarii, Pascha 10 Aprilis, etc.
+
+Notandum autem est, quod quemadmodum in anno communi, cadente littera Dominicali e regione Epactæ in tabula antiqua, sumitur eadem littera proxima infra Epactam, ut diximus; ita quoque in anno Bissextili, si alterutra duarum litterarum Dominicalium tunc currentium e regione Epactæ reperiatur, assumendæ sunt aliæ duæ similes litteræ proxime inferiores, ut Festa mobilia inveniantur.
+
+Ex tabula vero Paschali nova ita eadem Festa mobilia reperientur: In cellula litteræ Dominicalis currentis quæratur Epacta currens. Nam e directo omnia Festa mobilia deprehendentur. Ut anno 1609 in cellula litteræ Dominicalis d, tunc currentis, e regione Epactæ xxiv, quæ eodem anno currit, habetur Septuagesima die 15 Februarii, dies Cinerum 4 Martii, Pascha 19 Aprilis, etc.
+
+Sed sive antiqua, sive nova tabula Paschali utamur, invenienda sunt omnia Festa mobilia in annis Bissextilibus per litteram Dominicalem posteriorem, quæ nimirum currit post festum sancti Matthiæ Apostoli, ne scilicet ambigamus, utra duarum litterarum pro hoc aut illo Festo indagando accipienda sit; ita tamen, ut Septuagesimæ et diei Cinerum inventæ in Januario aut Februario addatur unus dies. Quod ideo fit, quia ante diem S. Matthiæ currit prior littera Dominicalis, quæ in Kalendario posteriorem semper sequitur; post Festum autem S. Matthiæ in Februario, licet posterior littera currat, additur tamen dies intercalaris, ita ut dies 24 Februarii dicatur 25, et dies 25 dicatur 26, etc. Quod si dies Cinerum cadat in Martium, nihil addendum est, quia tunc et littera posterior currit, et dies mensis propriis numeris respondent, cum dies intercalaris Februario sit additus. Immo nisi per posteriorem litteram investigarentur, non inveniretur recte Septuagesima in anno Bissextili, currente Epacta xxiv vel xxv et littera Dominicali d c, ut
+
+---
+
+<!-- p. xviij -->
+in secundo ac tertio exemplo perspicuum fiet pro annis 4088 et 3784. Exempli gratia: Anno 2096 Bissextili Epacta erit v et litteræ Dominicales **A** g. Si igitur per posteriorem litteram, quæ est g, Festa mobilia investigentur, reperietur Septuagesima die 11 Februarii et dies Cinerum 28 Februarii. Si autem addatur unus dies, cadet Septuagesima in diem 12 Februarii, quæ est Dominica, et dies Cinerum in diem 29 Februarii, quæ est Feria iv; Pascha autem et reliqua Festa in eos dies cadent qui in tabula expressi sunt. Item anno 4088 Bissextili Epacta erit xxiv et litteræ Dominicales d c. Si igitur per litteram c, quæ posterior est, inquirantur Festa mobilia, invenietur Septuagesima die 21 Februarii, et si addatur unus dies, cadet diem 22 Februarii, quæ est Dominica. Dies autem Cinerum cadet in diem 10 Martii: quare nihil additur, etc. Rursus anno 3784 Bissextili, Epacta erit xxv et litteræ Dominicales d c. Ergo iterum per posteriorem c, reperietur Septuagesima die 21 Februarii, hoc est, addita 1 die 22. Quod si per priorem litteram d in utroque horum duorum annorum agendum esset, nihil efficeretur, cum infra Epactas xxiv et xxv littera d indicet Septuagesimam die 15 Februarii, quod falsum esset, cum eo anno posterior littera offerat Pascha die 25 Aprilis, ac proinde Septuagesima die 22 Februarii celebranda sit, ut liquido constat, si a die Paschæ Dominicæ retro numerentur usque ad Septuagesimam.
+
+In priori porro tabula Paschali antiqua reformata, Epactis ad sinistram præposuimus Aureos numeros eodem ordine, quo ante emendationem Kalendarii collocari solebant, ut ex iis Festa mobilia invenirentur. Hoc autem idcirco a nobis factum est, ut Pascha ceteraque Festa mobilia a Concilio Nicæno usque ad annum 1582 quilibet indagare possit. Eodem autem prorsus artificio ex Aureis numeris ita distributis Festa mobilia eruuntur, quo ex Epactis. Sit enim explorandum, exempli causa, quando Festa hæc celebrata fuerint anno 1450. Quoniam eo anno Aureus numerus fuit 7, et littera Dominicalis d, si Aureus numerus 7 in sinistro latere accipiatur, et prima littera d, infra eum occurrens, reperietur e regione hujus litteræ d, Septuagesima die 1 Februarii, dies Cinerum 18 Februarii, Pascha die 5 Aprilis, etc.
+
+Adventus Domini celebratur semper die Dominico, qui propinquior est festo S. Andreæ Apostoli, nempe a die 27 Novembris inclusive usque ad diem 3 Decembris inclusive; ita ut littera Dominicalis currens, quæ reperitur in Kalendario a die 27 Novembris usque ad diem 3 Decembris, indicet Dominicam Adventus. Ut verbi gratia, si littera Dominicalis est g, Dominica Adventus cadet in diem 2 Decembris; quia ibi est littera g in Kalendario, etc.
+
+Ad finem tandem tabellarum Paschalium apposita est tabula temporaria multorum annorum, e regione quorum omnia Festa mobilia inveniuntur; quæ quidem tabula ex tabulis Paschalibus excerpta est, ex quibus infinitæ aliæ erui possunt pro quibuscumque annis.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Tabula Paschalis antiqua reformata
+
+*(Nota: columna "Cyclus Epactarum" tota rubro impressa est in originali.)*
+
+| Aur. Num. | Cyclus Epactarum | Litt. Dom. | Septuag. | Dies Cinerum | Pascha | Ascensio | Pentecost. | Corp. Christi | Dom. P. Pent. | Dom. I Adv. |
+|---|---|---|---|---|---|---|---|---|---|---|
+| 16 | xxiij | | Jan. | Febr. | Mar. | Apr. | Maii | Maii | | |
+| 5 | xxij | d | 18 | 4 | 22 | 30 | 10 | 21 | 28 | 29 N. |
+| | xxj | e | 19 | 5 | 23 | 1 Maii | 11 | 22 | 28 | 30 |
+| 13 | xx | f | 20 | 6 | 24 | 2 | 12 | 23 | 28 | 1 D. |
+| 2 | xix | g | 21 | 7 | 25 | 3 | 13 | 24 | 28 | 2 |
+| | xviij | **A** | 22 | 8 | 26 | 4 | 14 | 25 | 28 | 3 |
+| 10 | xvij | b | 23 | 9 | 27 | 5 | 15 | 26 | 27 | 27 N. |
+| | xvj | c | 24 | 10 | 28 | 6 | 16 | 27 | 27 | 28 |
+| 18 | xv | d | 25 | 11 | 29 | 7 | 17 | 28 | 27 | 29 |
+| 7 | xiv | e | 26 | 12 | 30 | 8 | 18 | 29 | 27 | 30 |
+| | xiij | f | 27 | 13 | 31 | 9 | 19 | 30 | 27 | 1 D. |
+| 15 | xij | g | 28 | 14 | 1 Ap. | 10 | 20 | 31 | 27 | 2 |
+| 4 | xj | **A** | 29 | 15 | 2 | 11 | 21 | 1 Jun. | 27 | 3 |
+| | x | b | 30 | 16 | 3 | 12 | 22 | 2 | 26 | 27 N. |
+| 12 | ix | c | 31 | 17 | 4 | 13 | 23 | 3 | 26 | 28 |
+| 1 | viij | d | 1 Fe. | 18 | 5 | 14 | 24 | 4 | 26 | 29 |
+| | vij | e | 2 | 19 | 6 | 15 | 25 | 5 | 26 | 30 |
+| 9 | vj | f | 3 | 20 | 7 | 16 | 26 | 6 | 26 | 1 D. |
+| | v | g | 4 | 21 | 8 | 17 | 27 | 7 | 26 | 2 |
+| 17 | iv | **A** | 5 | 22 | 9 | 18 | 28 | 8 | 26 | 3 |
+| 6 | iij | b | 6 | 23 | 10 | 19 | 29 | 9 | 25 | 27 N. |
+| | ij | c | 7 | 24 | 11 | 20 | 30 | 10 | 25 | 28 |
+| 14 | j | d | 8 | 25 | 12 | 21 | 31 | 11 | 25 | 29 |
+| 3 | * | e | 9 | 26 | 13 | 22 | 1 Jun. | 12 | 25 | 30 |
+| | xxix | f | 10 | 27 | 14 | 23 | 2 | 13 | 25 | 1 D. |
+| 11 | xxviij | g | 11 | 28 | 15 | 24 | 3 | 14 | 25 | 2 |
+| | xxvij | **A** | 12 | 1 Mar. | 16 | 25 | 4 | 15 | 25 | 3 |
+| 19 | **25** xxvj | b | 13 | 2 | 17 | 26 | 5 | 16 | 24 | 27 N. |
+| 8 | **xxv xxiv** | c | 14 | 3 | 18 | 27 | 6 | 17 | 24 | 28 |
+| | | d | 15 | 4 | 19 | 28 | 7 | 18 | 24 | 29 |
+| | | e | 16 | 5 | 20 | 29 | 8 | 19 | 24 | 30 |
+| | | f | 17 | 6 | 21 | 30 | 9 | 20 | 24 | 1 D. |
+| | | g | 18 | 7 | 22 | 31 | 10 | 21 | 24 | 2 |
+| | | **A** | 19 | 8 | 23 | 1 Jun. | 11 | 22 | 24 | 3 |
+| | | b | 20 | 9 | 24 | 2 | 12 | 23 | 23 | 27 N. |
+| | | c | 21 | 10 | 25 | 3 | 13 | 24 | 23 | 28 |
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Tabula Paschalis nova reformata
+
+*(Nota: columna "Cyclus Epactarum" tota rubro impressa est in originali; ordo eadem series 31 valorum est sub omnibus litteris — solum punctum initiale lineæ typographicæ variat.)*
+
+**D** — Cyclus Epactarum: 23. / 22. 21. 20. 19. 18. 17. 16. / 15. 14. 13. 12. 11. 10. 9. / 8. 7. 6. 5. 4. 3. 2. / 1. \*. 29. 28. 27. 26. xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 18 Januarii | 4 Februarii | 22 Martii | 30 Aprilis | 10 Maii | 21 Maii | 28 | 29 Novembris |
+| 25 Januarii | 11 Februarii | 29 Martii | 7 Maii | 17 Maii | 28 Maii | 27 | 29 Novembris |
+| 1 Februarii | 18 Februarii | 5 Aprilis | 14 Maii | 24 Maii | 4 Junii | 26 | 29 Novembris |
+| 8 Februarii | 25 Februarii | 12 Aprilis | 21 Maii | 31 Maii | 11 Junii | 25 | 29 Novembris |
+| 15 Februarii | 4 Martii | 19 Aprilis | 28 Maii | 7 Junii | 18 Junii | 24 | 29 Novembris |
+
+**E** — Cyclus Epactarum: 23. 22. / 21. 20. 19. 18. 17. 16. 15. / 14. 13. 12. 11. 10. 9. 8. / 7. 6. 5. 4. 3. 2. 1. / \*. 29. 28. 27. 26. xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 19 Januarii | 5 Februarii | 23 Martii | 1 Maii | 11 Maii | 22 Maii | 28 | 30 Novembris |
+| 26 Januarii | 12 Februarii | 30 Martii | 8 Maii | 18 Maii | 29 Maii | 27 | 30 Novembris |
+| 2 Februarii | 19 Februarii | 6 Aprilis | 15 Maii | 25 Maii | 5 Junii | 26 | 30 Novembris |
+| 9 Februarii | 26 Februarii | 13 Aprilis | 22 Maii | 1 Junii | 12 Junii | 25 | 30 Novembris |
+| 16 Februarii | 5 Martii | 20 Aprilis | 29 Maii | 8 Junii | 19 Junii | 24 | 30 Novembris |
+
+**F** — Cyclus Epactarum: 23. 22. 21. / 20. 19. 18. 17. 16. 15. 14. / 13. 12. 11. 10. 9. 8. 7. / 6. 5. 4. 3. 2. 1. \*. / 29. 28. 27. 26. xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 20 Januarii | 6 Februarii | 24 Martii | 2 Maii | 12 Maii | 23 Maii | 28 | 1 Decembris |
+| 27 Januarii | 13 Februarii | 31 Martii | 9 Maii | 19 Maii | 30 Maii | 27 | 1 Decembris |
+| 3 Februarii | 20 Februarii | 7 Aprilis | 16 Maii | 26 Maii | 6 Junii | 26 | 1 Decembris |
+| 10 Februarii | 27 Februarii | 14 Aprilis | 23 Maii | 2 Junii | 13 Junii | 25 | 1 Decembris |
+| 17 Februarii | 6 Martii | 21 Aprilis | 30 Maii | 9 Junii | 20 Junii | 24 | 1 Decembris |
+
+**G** — Cyclus Epactarum: 23. 22. 21. 20. / 19. 18. 17. 16. 15. 14. 13. / 12. 11. 10. 9. 8. 7. 6. / 5. 4. 3. 2. 1. \*. 29. / 28. 27. 26. xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 21 Januarii | 7 Februarii | 25 Martii | 3 Maii | 13 Maii | 24 Maii | 28 | 2 Decembris |
+| 28 Januarii | 14 Februarii | 1 Aprilis | 10 Maii | 20 Maii | 31 Maii | 27 | 2 Decembris |
+| 4 Februarii | 21 Februarii | 8 Aprilis | 17 Maii | 27 Maii | 7 Junii | 26 | 2 Decembris |
+| 11 Februarii | 28 Februarii | 15 Aprilis | 24 Maii | 3 Junii | 14 Junii | 25 | 2 Decembris |
+| 18 Februarii | 7 Martii | 22 Aprilis | 31 Maii | 10 Junii | 21 Junii | 24 | 2 Decembris |
+
+**A** — Cyclus Epactarum: 23. 22. 21. 20. 19. / 18. 17. 16. 15. 14. 13. 12. / 11. 10. 9. 8. 7. 6. 5. / 4. 3. 2. 1. \*. 29. 28. / 27. 26. xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 22 Januarii | 8 Februarii | 26 Martii | 4 Maii | 14 Maii | 25 Maii | 28 | 3 Decembris |
+| 29 Januarii | 15 Februarii | 2 Aprilis | 11 Maii | 21 Maii | 1 Junii | 27 | 3 Decembris |
+| 5 Februarii | 22 Februarii | 9 Aprilis | 18 Maii | 28 Maii | 8 Junii | 26 | 3 Decembris |
+| 12 Februarii | 1 Martii | 16 Aprilis | 25 Maii | 4 Junii | 15 Junii | 25 | 3 Decembris |
+| 19 Februarii | 8 Martii | 23 Aprilis | 1 Junii | 11 Junii | 22 Junii | 24 | 3 Decembris |
+
+**B** — Cyclus Epactarum: 23. 22. 21. 20. 19. 18. / 17. 16. 15. 14. 13. 12. 11. / 10. 9. 8. 7. 6. 5. 4. / 3. 2. 1. \*. 29. 28. 27. / 26. xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 23 Januarii | 9 Februarii | 27 Martii | 5 Maii | 15 Maii | 26 Maii | 27 | 27 Novembris |
+| 30 Januarii | 16 Februarii | 3 Aprilis | 12 Maii | 22 Maii | 2 Junii | 26 | 27 Novembris |
+| 6 Februarii | 23 Februarii | 10 Aprilis | 19 Maii | 29 Maii | 9 Junii | 25 | 27 Novembris |
+| 13 Februarii | 2 Martii | 17 Aprilis | 26 Maii | 5 Junii | 16 Junii | 24 | 27 Novembris |
+| 20 Februarii | 9 Martii | 24 Aprilis | 2 Junii | 12 Junii | 23 Junii | 23 | 27 Novembris |
+
+**C** — Cyclus Epactarum: 23. 22. 21. 20. 19. 18. 17. / 16. 15. 14. 13. 12. 11. 10. / 9. 8. 7. 6. 5. 4. 3. 2. / 1. \*. 29. 28. 27. 26. / xxv 25. 24.
+
+| Septuag. | Dies Cinerum | Pascha | Ascensio | Pentec. | Corpus Christi | Dom. P. Pent. | Dom. I Adventus |
+|---|---|---|---|---|---|---|---|
+| 24 Januarii | 10 Februarii | 28 Martii | 6 Maii | 16 Maii | 27 Maii | 27 | 28 Novembris |
+| 31 Januarii | 17 Februarii | 4 Aprilis | 13 Maii | 23 Maii | 3 Junii | 26 | 28 Novembris |
+| 7 Februarii | 24 Februarii | 11 Aprilis | 20 Maii | 30 Maii | 10 Junii | 25 | 28 Novembris |
+| 14 Februarii | 3 Martii | 18 Aprilis | 27 Maii | 6 Junii | 17 Junii | 24 | 28 Novembris |
+| 21 Februarii | 10 Martii | 25 Aprilis | 3 Junii | 13 Junii | 24 Junii | 23 | 28 Novembris |
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Tabella temporaria Festorum mobilium
+
+*(Nota: columnæ "Epactæ" et "Litt. Mart." totæ rubro impressæ sunt in originali.)*
+
+| Anno Domini | Litt. Domin. | Aureus Numerus | Epactæ | Septuagesima | Dies Cinerum | Pascha | Ascensio | Pentecostes | Corpus Christi | Indictio | Dominicæ P. Pentec. | Dominica I. Adventus | Litt. Mart. |
+|---|---|---|---|---|---|---|---|---|---|---|---|---|---|
+| 1942 | d | 5 | xiij | 1 Februarii | 18 Februarii | 5 Aprilis | 14 Maii | 24 Maii | 4 Junii | 10 | 26 | 29 Novembris | n |
+| 1943 | c | 6 | xxiv | 21 Februarii | 10 Martii | 25 Aprilis | 3 Junii | 13 Junii | 24 Junii | 11 | 23 | 28 Novembris | E |
+| 1944 | b **A** | 7 | v | 6 Februarii | 23 Februarii | 9 Aprilis | 18 Maii | 28 Maii | 8 Junii | 12 | 26 | 3 Decembris | e |
+| 1945 | g | 8 | xvj | 28 Januarii | 14 Februarii | 1 Aprilis | 10 Maii | 20 Maii | 31 Maii | 13 | 27 | 2 Decembris | r |
+| 1946 | f | 9 | xxvij | 17 Februarii | 6 Martii | 21 Aprilis | 30 Maii | 9 Junii | 20 Junii | 14 | 24 | 1 Decembris | H |
+| 1947 | e | 10 | viij | 2 Februarii | 19 Februarii | 6 Aprilis | 15 Maii | 25 Maii | 5 Junii | 15 | 26 | 30 Novembris | h |
+| 1948 | d c | 11 | xix | 25 Januarii | 11 Februarii | 28 Martii | 6 Maii | 16 Maii | 27 Maii | 1 | 27 | 28 Novembris | u |
+| 1949 | b | 12 | * | 13 Februarii | 2 Martii | 17 Aprilis | 26 Maii | 5 Junii | 16 Junii | 2 | 24 | 27 Novembris | P |
+| 1950 | **A** | 13 | xj | 5 Februarii | 22 Februarii | 9 Aprilis | 18 Maii | 28 Maii | 8 Junii | 3 | 26 | 3 Decembris | l |
+| 1951 | g | 14 | xxij | 21 Januarii | 7 Februarii | 25 Martii | 3 Maii | 13 Maii | 24 Maii | 4 | 28 | 2 Decembris | C |
+| 1952 | f e | 15 | iij | 10 Februarii | 27 Februarii | 13 Aprilis | 22 Maii | 1 Junii | 12 Junii | 5 | 25 | 30 Novembris | c |
+| 1953 | d | 16 | xiv | 1 Februarii | 18 Februarii | 5 Aprilis | 14 Maii | 24 Maii | 4 Junii | 6 | 26 | 29 Novembris | p |
+| 1954 | c | 17 | 25 | 14 Februarii | 3 Martii | 18 Aprilis | 27 Maii | 6 Junii | 17 Junii | 7 | 24 | 28 Novembris | F |
+| 1955 | b | 18 | vj | 6 Februarii | 23 Februarii | 10 Aprilis | 19 Maii | 29 Maii | 9 Junii | 8 | 25 | 27 Novembris | f |
+| 1956 | **A** g | 19 | xvij | 29 Januarii | 15 Februarii | 1 Aprilis | 10 Maii | 20 Maii | 31 Maii | 9 | 27 | 2 Decembris | s |
+| 1957 | f | 1 | xxix | 17 Februarii | 6 Martii | 21 Aprilis | 30 Maii | 9 Junii | 20 Junii | 10 | 24 | 1 Decembris | N |
+| 1958 | e | 2 | x | 2 Februarii | 19 Februarii | 6 Aprilis | 15 Maii | 25 Maii | 5 Junii | 11 | 26 | 30 Novembris | k |
+| 1959 | d | 3 | xxj | 25 Januarii | 11 Februarii | 29 Martii | 7 Maii | 17 Maii | 28 Maii | 12 | 27 | 29 Novembris | B |
+| 1960 | c b | 4 | ij | 14 Februarii | 2 Martii | 17 Aprilis | 26 Maii | 5 Junii | 16 Junii | 13 | 24 | 27 Novembris | b |
+| 1961 | **A** | 5 | xiij | 29 Januarii | 15 Februarii | 2 Aprilis | 11 Maii | 21 Maii | 1 Junii | 14 | 27 | 3 Decembris | n |
+| 1962 | g | 6 | xxiv | 18 Februarii | 7 Martii | 22 Aprilis | 31 Maii | 10 Junii | 21 Junii | 15 | 24 | 2 Decembris | E |
+| 1963 | f | 7 | v | 10 Februarii | 27 Februarii | 14 Aprilis | 23 Maii | 2 Junii | 13 Junii | 1 | 25 | 1 Decembris | e |
+| 1964 | e d | 8 | xvj | 26 Januarii | 12 Februarii | 29 Martii | 7 Maii | 17 Maii | 28 Maii | 2 | 27 | 29 Novembris | r |
+| 1965 | c | 9 | xxvij | 14 Februarii | 3 Martii | 18 Aprilis | 27 Maii | 6 Junii | 17 Junii | 3 | 24 | 28 Novembris | H |
+| 1966 | b | 10 | viij | 6 Februarii | 23 Februarii | 10 Aprilis | 19 Maii | 29 Maii | 9 Junii | 4 | 25 | 27 Novembris | h |
+| 1967 | **A** | 11 | xix | 22 Januarii | 8 Februarii | 26 Martii | 4 Maii | 14 Maii | 25 Maii | 5 | 28 | 3 Decembris | u |
+| 1968 | g f | 12 | * | 11 Februarii | 28 Februarii | 14 Aprilis | 23 Maii | 2 Junii | 13 Junii | 6 | 25 | 1 Decembris | P |
+| 1969 | e | 13 | xj | 2 Februarii | 19 Februarii | 6 Aprilis | 15 Maii | 25 Maii | 5 Junii | 7 | 26 | 30 Novembris | l |
+| 1970 | d | 14 | xxij | 25 Januarii | 11 Februarii | 29 Martii | 7 Maii | 17 Maii | 28 Maii | 8 | 27 | 29 Novembris | C |
+| 1971 | c | 15 | iij | 7 Februarii | 24 Februarii | 11 Aprilis | 20 Maii | 30 Maii | 10 Junii | 9 | 25 | 28 Novembris | c |
+| 1972 | b **A** | 16 | xiv | 30 Januarii | 16 Februarii | 2 Aprilis | 11 Maii | 21 Maii | 1 Junii | 10 | 27 | 3 Decembris | p |
+| 1973 | g | 17 | 25 | 18 Februarii | 7 Martii | 22 Aprilis | 31 Maii | 10 Junii | 21 Junii | 11 | 24 | 2 Decembris | F |
+| 1974 | f | 18 | vj | 10 Februarii | 27 Februarii | 14 Aprilis | 23 Maii | 2 Junii | 13 Junii | 12 | 25 | 1 Decembris | f |
+
+---
+
+<!-- p. [unnumbered; ornamental section-opening page] -->
+# Kalendarium
+
+*(Nota: columnæ "C.E." [Cyclus Epactarum] et "L.D." [Littera Dominicalis] rubro impressæ sunt in originali; item nomina festorum majoris ritus.)*
+
+## Januarius
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| * | A | Kal. | 1. Circumcisio Domini et Octava Nativitatis, duplex II classis. |
+| | | | *Dom. inter Circumcisionem et Epiphaniam — Ssmi Nominis Jesu, dupl. II class.* |
+| 29 | b | iv | 2. Octava S. Stephani Protomart., simplex. |
+| 28 | c | iij | 3. Octava S. Joannis Ap. et Ev., simplex. |
+| 27 | d | Prid. | 4. Octava Ss. Innocentium Mm., simplex. |
+| 26 | e | Non. | 5. Vigilia Epiphaniæ, semidupl. Com. S. Telesphori Papæ et Mart. |
+| 25 25 | f | viij | 6. Epiphania Domini, dupl. I cl. cum Octava privilegiata II Ordinis. |
+| | | | *Dom. infra Octavam Epiphaniæ — Sanctæ Familiæ, Jesu, Mariæ, Joseph, dupl. maj. Com. Dominicæ et Octavæ.* |
+| 24 | g | vij | 7. De II die infra Oct. Epiphaniae, semidupl. |
+| 23 | A | vj | 8. De III die infra Octavam, semidupl. |
+| 22 | b | v | 9. De IV die infra Octavam, semidupl. |
+| 21 | c | iv | 10. De V die infra Octavam, semidupl. |
+| 20 | d | iij | 11. De VI die infra Octavam, semidupl. Com. S. Hygini Papae et Mart. |
+| 19 | e | Prid. | 12. De VII die infra Octavam, semidupl. |
+| 18 | f | Idib. | 13. Octava Epiphaniæ, dupl. maj. |
+| 17 | g | xix | 14. S. Hilarii Ep., Conf. et Eccl. Doct., dupl. Com S. Felicis Presb. et Mart. |
+| 16 | A | xviij | 15. S. Pauli primi Eremitae, Conf., dupl. Com. S. Mauri Abb. |
+| 15 | b | xvij | 16. S. Marcelli I Papae et Mart., semidupl. |
+| 14 | c | xvj | 17. S. Antonii Abb., dupl. |
+| 13 | d | xv | 18. Cathedra S. Petri Romæ, dupl. maj. Com. S. Pauli Ap. ac S. Priscæ Virg. et Mart. |
+| 12 | e | xiv | 19. Ss. Marii, Marthae, Audifacis, et Abachum Mm., simplex. Com. S. Canuti Regis, Mart. |
+| 11 | f | xiij | 20. Ss. Fabiani Papae et Sebastiani Mm., dupl. |
+| 10 | g | xij | 21. S. Agnetis Virg. et Mart., dupl. |
+| 9 | A | xj | 22. Ss. Vincentii et Anastasii Mm., semid. |
+| 8 | b | x | 23. S. Raymundi de Peñafort Conf., semid. Com. S. Emerentianae Virg. et Mart. |
+| 7 | c | ix | 24. S. Timothei Ep. et Mart., dupl. |
+| 6 | d | viij | 25. Conversio S. Pauli Ap., dupl. maj. Com. S. Petri Apostoli. |
+| 5 | e | vij | 26. S. Polycarpi Ep. et Mart., dupl. |
+| 4 | f | vj | 27. S. Joannis Chrysostomi Ep., Conf. et Eccl. Doct., duplex. |
+| 3 | g | v | 28. S. Petri Nolasci Conf., dupl. Com. S. Agnetis Virg. et Mart. secundo. |
+| 2 | A | iv | 29. S. Francisci Salesii Ep., Conf. et Eccl. Doct. dupl. |
+| 1 | b | iij | 30. S. Martinæ Virg. et Mart., semidupl. |
+| * | c | Prid. | 31. S. Joannis Bosco Conf., dupl. |
+
+## Februarius
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 29 | d | Kal. | 1. S. Ignatii Ep. et Mart., dupl. |
+| 28 | e | iv | 2. Purificatio B. M. V., dupl. II class. |
+| 27 | f | iij | 3. S. Blasii Ep. et Mart., simplex. |
+| 25 26 | g | Prid. | 4. S. Andreæ Corsini Ep. et Conf., dupl. |
+| 25 24 | A | Non. | 5. S. Agathæ Virg. et Mart., dupl. |
+| 23 | b | viij | 6. S. Titi Ep. et Conf., dupl. Com. S. Dorotheæ Virg. et Mart. |
+| 22 | c | vij | 7. S. Romualdi Abb., dupl. |
+| 21 | d | vj | 8. S. Joannis de Matha Conf., dupl. |
+| 20 | e | v | 9. S. Cyrilli Ep. Alexandrini, Conf. et Eccl. Doct., dupl. Com. S. Apolloniæ Virg. et Mart. |
+| 19 | f | iv | 10. S. Scholasticae Virg., dupl. |
+| 18 | g | iij | 11. Apparitio B. M. V. Immaculatæ, dupl. maj. |
+| 17 | A | Prid. | 12. Ss. Septem Fundatorum Ordinis Servorum B. M. V. Confessorum, dupl. |
+| 16 | b | Idib. | 13. |
+| 15 | c | xvj | 14. S. Valentini Presb. et Mart., simplex. |
+| 14 | d | xv | 15. Ss. Faustini et Jovitae Mm., simplex. |
+| 13 | e | xiv | 16. |
+| 12 | f | xiij | 17. |
+| 11 | g | xij | 18. S. Simeonis Ep. et Mart., simplex. |
+| 10 | A | xj | 19. |
+| 9 | b | x | 20. |
+| 8 | c | ix | 21. |
+| 7 | d | viij | 22. Cathedra S. Petri Antiochiæ, dupl. maj. Com. S. Pauli Ap. |
+| 6 | e | vij | 23. S. Petri Damiani Ep., Conf. et Eccl. Doct., dupl. Com. Vigiliæ. |
+| 5 | f | vj | 24. S. Matthiae Apostoli, dupl. II class. |
+| 4 | g | v | 25. |
+| 3 | A | iv | 26. |
+| 2 | b | iij | 27. S. Gabrielis a Virgine Perdolente, Conf., dupl. |
+| 1 | c | Prid. | 28. |
+
+*In anno bissextili Februarius est dierum 29, et Festum S. Matthiæ celebratur die 25, ac Festum S. Gabrielis a Virg.*
+
+<!-- the sentence ends exactly here in the original; nothing further follows on the page -->
+
+*Perdolente die 28 Februarii, et bis dicitur Sexto Kalendas, id est die 24 et die 25 et littera Dominicalis, quæ assumpta fuit in mense Januario, mutatur in præcedentem; ut, si in Januario littera Dominicalis fuerit A, mutetur in præcedentem, quæ est g etc.; et littera f bis servit, 24 et 25.*
+
+## Martius
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| * | d | Kal. | 1. |
+| 29 | e | vj | 2. |
+| 28 | f | v | 3. |
+| 27 | g | iv | 4. S. Casimiri Conf., semidupl., Com. S. Lucii I Papae et Mart. |
+| 26 | A | iij | 5. |
+| 25 25 | b | Prid. | 6. Ss. Perpetuae et Felicitatis Mm., dupl. |
+| 24 | c | Non. | 7. S. Thomæ de Aquino Conf. et Eccl. Doct., dupl. |
+| 23 | d | viij | 8. S. Joannis de Deo Conf., dupl. |
+| 22 | e | vij | 9. S. Franciscæ Romanæ Vid., dupl. |
+| 21 | f | vj | 10. Ss. Quadraginta Mm., semidupl. |
+| 20 | g | v | 11. |
+| 19 | A | iv | 12. S. Gregorii I Papæ, Conf. et Eccl. Doct., dupl. |
+| 18 | b | iij | 13. |
+| 17 | c | Prid. | 14. |
+| 16 | d | Idib. | 15. |
+| 15 | e | xvij | 16. |
+| 14 | f | xvj | 17. S. Patricii Ep. et Conf., dupl. |
+| 13 | g | xv | 18. S. Cyrilli Ep. Hierosolymitani, Conf. et Eccl. Doct., dupl. |
+| 12 | A | xiv | 19. S. Joseph, Sponsi B. M. V. Conf., dupl. 1 cl. |
+| 11 | b | xiij | 20. |
+| 10 | c | xij | 21. S. Benedicti Abb., dupl. maj. |
+| 9 | d | xj | 22. |
+| 8 | e | x | 23. |
+| 7 | f | ix | 24. S. Gabrielis Archang., dupl. maj. |
+| 6 | g | viij | 25. Annuntiatio B. Mariæ V., dupl. 1 cl. |
+| 5 | A | vij | 26. |
+| 4 | b | vj | 27. S. Joannis Damasceni Conf. et Eccl. Doct., dupl. |
+| 3 | c | v | 28. S. Joannis a Capistrano Conf., semid. |
+| 2 | d | iv | 29. |
+| 1 | e | iij | 30. |
+| * | f | Prid. | 31. |
+
+*Feria VI post Domin. Passionis — Septem Dolorum B. M. V., dupl. maj. Com. Fer.*
+
+## Aprilis
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 29 | g | Kal. | 1. |
+| 28 | A | iv | 2. S. Francisci de Paula Conf., dupl. |
+| 27 | b | iij | 3. |
+| 25 26 | c | Prid. | 4. S. Isidori Ep., Conf. et Eccl. Doct., dupl. |
+| 25 24 | d | Non. | 5. S. Vincentii Ferrerii Conf., dupl. |
+| 23 | e | viij | 6. |
+| 22 | f | vij | 7. |
+| 21 | g | vj | 8. |
+| 20 | A | v | 9. |
+| 19 | b | iv | 10. |
+| 18 | c | iij | 11. S. Leonis I Papæ, Conf. et Eccl. Doct., dupl. |
+| 17 | d | Prid. | 12. |
+| 16 | e | Idib. | 13. S. Hermenegildi Regis, Mart., semid. |
+| 15 | f | xviij | 14. S. Justini Mart., dupl. Com. Ss. Tiburtii, Valeriani et Maximi Mm. |
+| 14 | g | xvij | 15. |
+| 13 | A | xvj | 16. |
+| 12 | b | xv | 17. S. Aniceti Papæ et Mart., simplex |
+| 11 | c | xiv | 18. |
+| 10 | d | xiij | 19. |
+| 9 | e | xij | 20. |
+| 8 | f | xj | 21. S. Anselmi Ep., Conf. et Eccl. Doct. dupl. |
+| 7 | g | x | 22. Ss. Soteris et Caji Pp. et Mm., semid. |
+| 6 | A | ix | 23. S. Georgii Mart., semid. |
+| 5 | b | viij | 24. S. Fidelis a Sigmaringa Mart., dupl. |
+| 4 | c | vij | 25. S. Marci Evang., dupl. II class. |
+| 3 | d | vj | 26. Ss. Cleti et Marcellini Pp. et Mm., semid. |
+| 2 | e | v | 27. S. Petri Canisii Conf. et Eccl. Doct., dupl. |
+| 1 | f | iv | 28. S. Pauli a Cruce Conf., dupl. Com. S. Vitalis Mart. |
+| * | g | iij | 29. S. Petri Mart., dupl. |
+| 29 | A | Prid. | 30. S. Catharinæ Senensis Virg., dupl. |
+
+*Feria IV infra Hebdom. II post Oct. Paschæ — Solemnitas S. Joseph, Sponsi B. M. V., Conf. et Eccl. Univers. Patroni, duplex I cl. cum Octava commūni.*
+
+*Feria IV infra Hebdom. III post Oct. Paschæ — Octava S. Joseph, duplex majus.*
+
+## Maius
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 28 | b | Kal. | 1. Ss. Philippi et Jacobi App., dupl. II class. |
+| 27 | c | vj | 2. S. Athanasii Ep., Conf. et Eccl. Doct. dupl. |
+| 26 | d | v | 3. Inventio S. Crucis, dupl. II class. Com. Ss. Alexandri I. Papæ, Eventii et Theoduli Mm. ac Juvenalis Ep. et Conf. |
+| 25 25 | e | iv | 4. S. Monicæ Viduæ, dupl. |
+| 24 | f | iij | 5. S. Pii V Papæ et Conf., dupl. |
+| 23 | g | Prid. | 6. S. Joannis ante Portam Latinam, dupl. maj. |
+| 22 | A | Non. | 7. S. Stanislai Ep. et Mart., dupl. |
+| 21 | b | viij | 8. Apparitio S. Michaelis Archang., dupl. maj. |
+| 20 | c | vij | 9. S. Gregorii Nazianzeni Ep., Conf. et Eccl. Doct., dupl. |
+| 19 | d | vj | 10. S. Antonini Episc. et Conf., duplex. Com. Ss. Gordiani et Epimachi Mm. |
+| 18 | e | v | 11. |
+| 17 | f | iv | 12. Ss. Nerei, Achillei et Domitillæ Virg. atque Pancratii Mm., semidupl. |
+| 16 | g | iij | 13. S. Roberti Bellarmino Ep., C. et E. Doct., dpl. |
+| 15 | A | Prid. | 14. S. Bonifatii Mart., simplex. |
+| 14 | b | Idib. | 15. S. Joannis Baptistæ de la Salle Conf., dupl. |
+| 13 | c | xvij | 16. S. Ubaldi Ep. et Conf., semidupl. |
+| 12 | d | xvj | 17. S. Paschalis Baylon Conf., dupl. |
+| 11 | e | xv | 18. S. Venantii Mart., dupl. |
+| 10 | f | xiv | 19. S. Petri Cælestini Papæ et Conf., dupl. Com. S. Pudentianæ Virg. |
+| 9 | g | xiij | 20. S. Bernardini Senensis Conf., semidupl. |
+| 8 | A | xij | 21. |
+| 7 | b | xj | 22. |
+| 6 | c | x | 23. |
+| 5 | d | ix | 24. |
+| 4 | e | viij | 25. S. Gregorii VII Papæ et Conf., dupl. Com. S. Urbani I Papæ et Mart. |
+| 3 | f | vij | 26. S. Philippi Nerii Conf., dupl. Com. S. Eleutherii Papæ et Mart. |
+| 2 | g | vj | 27. S. Bedæ Venerabilis Conf. et Eccl. Doct., dupl. Com. S. Joannis I Papæ et Mart. |
+| 1 | A | v | 28. S. Augustini Ep. et Conf. dupl. |
+| * | b | iv | 29. S. Mariæ Magdalenæ de Pazzis Virg., semidupl. |
+| 29 | c | iij | 30. S. Felicis Papæ et Mart., simplex. |
+| 28 | d | Prid. | 31. S. Angelæ Mericiæ Virg., dupl. Com. S. Petronillæ Virg. |
+
+## Junius
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 27 | e | Kal. | 1. |
+| 25 26 | f | iv | 2. Ss. Marcellini, Petri atque Erasmi Mm. simplex. |
+| 25 24 | g | iij | 3. |
+| 23 | A | Prid. | 4. S. Francisci Caracciolo Conf., dupl. |
+| 22 | b | Non. | 5. S. Bonifatii Ep. et Mart., dupl. |
+| 21 | c | viij | 6. S. Norberti Ep. et Conf., dupl. |
+| 20 | d | vij | 7. |
+| 19 | e | vj | 8. |
+| 18 | f | v | 9. Ss. Primi et Feliciani Mm., simplex. |
+| 17 | g | iv | 10. S. Margaritæ Reginæ, Vid., semid. |
+| 16 | A | iij | 11. S. Barnabæ Apost., dupl. maj. |
+| 15 | b | Prid. | 12. S. Joannis a S. Facundo Conf., dupl. Com. Ss. Basilidis, Cyrini, Naboris et Nazarii Mm. |
+| 14 | c | Idib. | 13. S. Antonii de Padua, Conf., dupl. |
+| 13 | d | xviij | 14. S. Basilii Ep., Conf. et Eccl. Doct., dupl. |
+| 12 | e | xvij | 15. Ss. Viti, Modesti atque Crescentiæ Mm., simplex. |
+| 11 | f | xvj | 16. |
+| 10 | g | xv | 17. |
+| 9 | A | xiv | 18. S. Ephræm Syri Diaconi, Conf. et Eccl. Doct., dupl. Com. Ss. Marci et Marcelliani Mm. |
+| 8 | b | xiij | 19. S. Julianæ de Falconeriis Virg., dupl. Com. Ss. Gervasii et Protasii Mm. |
+| 7 | c | xij | 20. S. Silverii Papæ et Mart., simplex. |
+| 6 | d | xj | 21. S. Aloysii Gonzagæ Conf., dupl. |
+| 5 | e | x | 22. S. Paulini Ep. et Conf., dupl. |
+| 4 | f | ix | 23. Vigilia |
+| 3 | g | viij | 24. Nativitas S. Joannis Baptistæ, dupl. I class. cum Octava communi |
+| 2 | A | vij | 25. S. Gulielmi Abb., dupl. Com. Oct. |
+| 1 | b | vj | 26. Ss. Joannis et Pauli Mm., dupl. Com. Oct. |
+| * | c | v | 27. De IV die infra Oct. S. Joannis, semid. |
+| 29 | d | iv | 28. S. Irenæi Ep. et Mart., dupl. Com. Oct. et Vig. |
+| 28 | e | iij | 29. Ss. Petri et Pauli App., dupl. I cl. cum Octava communi. |
+| 27 | f | Prid. | 30. Commemoratio S. Pauli Ap. dupl. maj. Com. S. Petri Ap. et Oct. S. Joannis. |
+
+## Julius
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 26 | g | Kal. | 1. Pretiosissimi Sanguinis D. N. J. C., dupl. I class. Com. diei Oct. S. Joannis. |
+| 25 25 | A | vj | 2. Visitatio B. M. V., dupl. II class. Com. Ss. Processi et Martiniani Mm. |
+| 24 | b | v | 3. S. Leonis II Papæ et Conf., semidupl. Com. Oct. Ss. App. |
+| 23 | c | iv | 4. De VI die infra Oct. Ss. Petri et Pauli, semid. |
+| 22 | d | iij | 5. S. Antonii Mariæ Zaccaria Conf. dupl. Com. Oct. Ss. App. |
+| 21 | e | Prid. | 6. Octava Ss. Petri et Pauli App., dupl. maj. |
+
+N° 28 B. — H. *c*
+
+| 20 | f | Non. | 7. Ss. Cyrilli et Methodii Epp. et Cc., dupl. |
+| 19 | g | viij | 8. S. Elisabeth Reginæ, Viduæ, semidupl. |
+| 18 | A | vij | 9. |
+| 17 | b | vj | 10. Ss. Septem Fratrum Mm. ac Ss. Rufinæ et Secundæ Vv. et Mm., semid. |
+| 16 | c | v | 11. S. Pii I Papæ et Mart., simplex. |
+| 15 | d | iv | 12. S. Joannis Gualberti Abbatis, dupl. Com. Ss. Naboris et Felicis Mm. |
+| 14 | e | iij | 13. S. Anacleti Papæ et Mart., semidupl. |
+| 13 | f | Prid. | 14. S. Bonaventuræ Ep., Conf. et Eccl. Doct. dupl. |
+| 12 | g | Idib. | 15. S. Henrici Imperatoris, Conf., semid. |
+| 11 | A | xvij | 16. Commemoratio B. M. V. de Monte Carmelo, dupl. majus. |
+| 10 | b | xvj | 17. S. Alexii Conf., semidupl. |
+| 9 | c | xv | 18. S. Camilli de Lellis Conf., dupl. Commem. Ss. Symphorosæ et septem Filiorum ejus Martyrum. |
+| 8 | d | xiv | 19. S. Vincentii a Paulo Conf., dupl. |
+| 7 | e | xiij | 20. S. Hieronymi Æmiliani Conf., dupl. Com. S. Margaritæ Virg. et Mart. |
+| 6 | f | xij | 21. S. Praxedis Virg., simplex. |
+| 5 | g | xj | 22. S. Mariæ Magdalenæ Pœnit., dupl. |
+| 4 | A | x | 23. S. Apollinaris Ep. et Mart., dupl. Com. S. Liborii Ep. et Conf. |
+| 3 | b | ix | 24. Vigilia. Com. S. Christinæ Virg. et Mart. |
+| 2 | c | viij | 25. S. Jacobi Ap., dupl. II class. Com S. Christophori Mart. |
+| 1 | d | vij | 26. S. Annæ Matris B. M. V., dupl. II class. |
+| * | e | vj | 27. S. Pantaleonis Mart., simplex. |
+| 29 | f | v | 28. Ss. Nazarii et Celsi Mm., Victoris I Papæ et Mart. ac Innocentii Papæ et Conf., semid. |
+| 28 | g | iv | 29. S. Marthæ Virg., semidupl. Com. Ss. Felicis II Papæ, Simplicii, Faustini et Beatricis, Mm. |
+| 27 | A | iij | 30. Ss. Abdon et Sennen Mm., simplex. |
+| 25 26 | b | Prid. | 31. S. Ignatii Conf., dupl. maj. |
+
+## Augustus
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 25 24 | c | Kal. | 1. S. Petri ad Vincula, dupl. maj. Com. S. Pauli Ap. ac Ss. Machabæorum Mm. |
+| 23 | d | iv | 2. S. Alfonsi Mariæ de Ligorio Ep., Conf. et Eccl. Doct., dupl. Com. S. Stephani I Papæ et Mart. |
+| 22 | e | iij | 3. Inventio S. Stephani Protomart., semidupl. |
+| 21 | f | Prid. | 4. S. Dominici Conf., dupl. maj. |
+| 20 | g | Non. | 5. Dedicatio S. Mariæ ad Nives, dupl. maj. |
+| 19 | A | viij | 6. Transfiguratio D. N. J. C. dupl. II class. Com. Ss. Xysti II Papæ, Felicissimi et Agapiti Mm. |
+| 18 | b | vij | 7. S. Cajetani Conf., dupl. Com. S. Donati Ep. et Mart. |
+| 17 | c | vj | 8. Ss. Cyriaci, Largi et Smaragdi Mm., semid. |
+| 16 | d | v | 9. S. Joannis Mariæ Vianney, Conf., dupl. Com. Vigiliæ et S. Romani Mart. |
+| 15 | e | iv | 10. S. Laurentii Mart., dupl. II class. cum Octava simplici. |
+| 14 | f | iij | 11. Ss. Tiburtii et Susannæ Virg., Mm., simplex. |
+| 13 | g | Prid. | 12. S. Claræ Virg., dupl. |
+| 12 | A | Idib. | 13. Ss. Hippolyti et Cassiani Mm., simplex. |
+| 11 | b | xix | 14. Vigilia. Com. S. Eusebii Conf. |
+| 10 | c | xviij | 15. Assumptio B. M. V., dupl. I class. cum Octava communi. |
+| 9 | d | xvij | 16. S. Joachim, Patris B. M. V., Conf., dupl. II class. |
+| 8 | e | xvj | 17. S. Hyacinthi Conf., dupl. Com. Oct. Assumptionis ac diei Oct. S. Laurentii. |
+| 7 | f | xv | 18. De IV die infra Oct. Assumptionis, semid. Com. S. Agapiti Mart. |
+| 6 | g | xiv | 19. S. Joannis Eudes Conf., dupl. Com. Oct. |
+| 5 | A | xiij | 20. S. Bernardi Abb., Conf. et Eccl. Doct., dupl. Com. Octavæ Assumptionis. |
+| 4 | b | xij | 21. S. Joannæ Franciscæ Fremiot de Chantal Vid., dupl. Com. Octavæ Assumptionis. |
+| 3 | c | xj | 22. Octava Assumptionis B. M. V., dupl. maj. Com. Ss. Timothei et Soc. Mm. |
+| 2 | d | x | 23. S. Philippi Benitii Conf., dupl. Com. Vigiliæ. |
+| 1 | e | ix | 24. S. Bartholomæi Apostoli, dupl. II class. |
+| * | f | viij | 25. S. Ludovici Regis, Conf., semidupl. |
+| 29 | g | vij | 26. S. Zephyrini Papæ et Mart., simplex. |
+| 28 | A | vj | 27. S. Josephi Calasanctii Conf., dupl. |
+| 27 | b | v | 28. S. Augustini Ep., Conf. et Eccl. Doct., dupl. Com. S. Hermetis Mart. |
+| 26 | c | iv | 29. Decollatio S. Joannis Baptistæ, dupl. maj. Com. S. Sabinæ Mart. |
+| 25 25 | d | iij | 30. S. Rosæ Limanæ Virg., dupl. Commem. Ss. Felicis et Adaucti Mm. |
+| 24 | e | Prid. | 31. S. Raymundi Nonnati Conf., dupl. |
+
+## September
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 23 | f | Kal. | 1. S. Ægidii Abb., simplex. Com. Ss. Duodecim Fratrum Mm. |
+| 22 | g | iv | 2. S. Stephani Regis, Conf., semid. |
+| 21 | A | iij | 3. |
+| 20 | b | Prid. | 4. |
+| 19 | c | Non. | 5. S. Laurentii Justiniani Ep. et Conf., semid. |
+| 18 | d | viij | 6. |
+| 17 | e | vij | 7. |
+| 16 | f | vj | 8. Nativitas B. M. V., dupl. II class. cum Octava simplici. Com. S. Hadriani Mart. |
+| 15 | g | v | 9. S. Gorgonii Mart., simplex. |
+| 14 | A | iv | 10. S. Nicolai de Tolentino Conf., dupl. |
+| 13 | b | iij | 11. Ss. Proti et Hyacinthi Mm., simplex. |
+| 12 | c | Prid. | 12. Ssmi Nominis Mariæ, dupl. maj. |
+| 11 | d | Idib. | 13. |
+| 10 | e | xviij | 14. Exaltatio S. Crucis, dupl. maj. |
+| 9 | f | xvij | 15. Septem Dolorum B. M. V., dupl. II class. Com. S. Nicomedis Mart. |
+| 8 | g | xvj | 16. Ss. Cornelii Papæ et Cypriani Ep. Mm., semidupl. Com. Ss. Euphemiæ, Luciæ et Geminiani Mm. |
+| 7 | A | xv | 17. Impressio Sacror. Stigmatum S. Francisci Conf., dupl. |
+| 6 | b | xiv | 18. S. Josephi a Cupertino Conf., dupl. |
+| 5 | c | xiij | 19. Ss. Januarii Ep. et Socior. Mm., dupl. |
+| 4 | d | xij | 20. Ss. Eustachii et Soc. Mm., dupl. Com. Vigiliæ. |
+| 3 | e | xj | 21. S. Matthæi Apostoli et Evangelistæ, dupl. II class. |
+| 2 | f | x | 22. S. Thomæ de Villanova Ep. et Conf., dupl. Com Ss. Mauritii et Soc. Mm. |
+| 1 | g | ix | 23. S. Lini Papæ et Mart., semid. Com. S. Theclæ Virg. et Mart. |
+| * | A | viij | 24. B. M. V. de Mercede, dupl. maj. |
+| 29 | b | vij | 25. |
+| 28 | c | vj | 26. Ss. Cypriani et Justinæ Virg. Mm., simplex. |
+| 27 | d | v | 27. Ss. Cosmæ et Damiani Mm., semidupl. |
+| 25 26 | e | iv | 28. S. Wenceslai Ducis, Mart., semidupl. |
+| 25 24 | f | iij | 29. Dedicatio S. Michaelis Archangeli, dupl. I class. |
+| 23 | g | Prid. | 30. S. Hieronymi Presb., Conf. et Eccl. Doct., dupl. |
+
+## October
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 22 | A | Kal. | 1. S. Remigii Ep. et Conf., simplex. |
+| 21 | b | vj | 2. Ss. Angelorum Custodum, dupl. maj. |
+| 20 | c | v | 3. S. Teresiæ a Jesu Infante Virg., dupl. |
+| 19 | d | iv | 4. S. Francisci Conf., dupl. maj. |
+| 18 | e | iij | 5. Ss. Placidi et Socior. Mm., simplex. |
+| 17 | f | Prid. | 6. S. Brunonis Conf., dupl. |
+| 16 | g | Non. | 7. Ssmi Rosarii B. M. V., dupl. II class. Com. S. Marci I. Papæ et Conf., ac Ss. Sergii et Socior. Mm. |
+| 15 | A | viij | 8. S. Birgittæ Viduæ, dupl. |
+| 14 | b | vij | 9. S. Joannis Leonardi Conf., dupl. Com. Ss. Dionysii Ep., Rustici et Eleutherii Mm. |
+| 13 | c | vj | 10. S. Francisci Borgiæ Conf., semidupl. |
+| 12 | d | v | 11. Maternitatis B. Mariæ Virg. dupl. II class. |
+| 11 | e | iv | 12. |
+| 10 | f | iij | 13. S. Eduardi Regis, Conf., semidupl. |
+| 9 | g | Prid. | 14. S. Callisti I Papæ et Mart., dupl. |
+| 8 | A | Idib. | 15. S. Teresiæ Virg., dupl. |
+| 7 | b | xvij | 16. S. Hedwigis Viduæ, semidupl. |
+| 6 | c | xvj | 17. S. Margaritæ Mariæ Alacoque, Virg., dupl. |
+| 5 | d | xv | 18. S. Lucæ Evangelistæ, dupl. II class. |
+| 4 | e | xiv | 19. S. Petri de Alcantara Conf., dupl. |
+| 3 | f | xiij | 20. S. Joannis Cantii Conf., dupl. |
+| 2 | g | xij | 21. S. Hilarionis Abb., simplex. Com. Ss. Ursulæ et Sociarum Vv. et Mm. |
+| 1 | A | xj | 22. |
+| * | b | x | 23. |
+| 29 | c | ix | 24. S. Raphaëlis Archangeli, duplex majus. |
+| 28 | d | viij | 25. Ss. Chrysanthi et Dariæ Mm., simplex. |
+| 27 | e | vij | 26. S. Evaristi Papæ et Mart., simplex. |
+| 26 | f | vj | 27. Vigilia. |
+| 25 25 | g | v | 28. Ss. Simonis et Judæ App., dupl. II class. |
+| 24 | A | iv | 29. |
+| 23 | b | iij | 30. |
+| 22 | c | Prid. | 31. Vigilia. |
+
+*Dominica ultima Octobris — Festum D. N. Jesu Christi Regis, duplex I classis.*
+
+## November
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 21 | d | Kal. | 1. Omnium Sanctorum, dupl. I class. cum Octava communi. |
+| 20 | e | iv | 2. Commem. Omnium Fidelium Defunctorum, dupl. |
+| 19 | f | iij | 3. De III die infra Oct. Omnium Ss., semid. |
+| 18 | g | Prid. | 4. S. Caroli Ep. et Conf., dupl. Com. Octavæ ac Ss. Vitalis et Agricolæ Mm. |
+| 17 | A | Non. | 5. De V die infra Oct. Omnium Ss., semid. |
+| 16 | b | viij | 6. De VI die infra Oct. Omnium Ss., semid. |
+| 15 | c | vij | 7. De VII die infra Oct. Omnium Ss., semid. |
+| 14 | d | vj | 8. Octava Omnium Sanctorum, dupl. maj. Com. Ss. Quatuor Coronatorum Mm. |
+| 13 | e | v | 9. Dedicatio Archibasilicæ Ssmi Salvatoris, dupl. II class. Com. S. Theodori Mart. |
+| 12 | f | iv | 10. S. Andreæ Avellini Conf., dupl. Commem. Ss. Tryphonis, Respicii et Nymphæ Virg. Martyrum. |
+| 11 | g | iij | 11. S. Martini Ep. et Conf., dupl. Commemoratio S. Mennæ Mart. |
+| 10 | A | Prid. | 12. S. Martini I Papæ et Mart., semidupl. |
+| 9 | b | Idib. | 13. S. Didaci Conf., semidupl. |
+| 8 | c | xviij | 14. S. Josaphat Ep. et Mart., dupl. |
+| 7 | d | xvij | 15. S. Alberti Magni Ep., C. et Eccl. Doct., dupl. |
+| 6 | e | xvj | 16. S. Gertrudis Virg., dupl. |
+| 5 | f | xv | 17. S. Gregorii Thaumaturgi Ep. et Conf., semid. |
+| 4 | g | xiv | 18. Dedicatio Basilicarum Ss. Petri et Pauli App., dupl. maj. |
+| 3 | A | xiij | 19. S. Elisabeth Viduæ, dupl. Com. S. Pontiani Papæ et Mart. |
+| 2 | b | xij | 20. S. Felicis de Valois Conf., dupl. |
+| 1 | c | xj | 21. Præsentatio B. M. V., dupl. maj. |
+| * | d | x | 22. S. Cæciliæ Virg. et Mart., dupl. |
+| 29 | e | ix | 23. S. Clementis I Papæ et Mart., dupl. Com. S. Felicitatis Mart. |
+| 28 | f | viij | 24. S. Joannis a Cruce Conf., et Eccl. Doct., dupl. Com. S. Chrysogoni Mart. |
+| 27 | g | vij | 25. S. Catharinæ Virg. et Mart., dupl. |
+| 25 26 | A | vj | 26. S. Silvestri Abb., dupl. Com. S. Petri Alexandrini Ep. et Mart. |
+| 25 24 | b | v | 27. |
+| 23 | c | iv | 28. |
+| 22 | d | iij | 29. Vigilia, et Com. S. Saturnini Mart. |
+| 21 | e | Prid. | 30. S. Andreæ Apostoli, dupl. II class. |
+
+## December
+
+| C.E. | L.D. | D.M. | Festum |
+|---|---|---|---|
+| 20 | f | Kal. | 1. |
+| 19 | g | iv | 2. S. Bibianæ Virg. et Mart., semidupl. |
+| 18 | A | iij | 3. S. Francisci Xaverii Conf., dupl. maj. |
+| 17 | b | Prid. | 4. S. Petri Chrysologi Ep., Conf. et Eccl. Doct., dupl. Com. S. Barbaræ Virg. et Mart. |
+| 16 | c | Non. | 5. Com. S. Sabbæ Abb. |
+| 15 | d | viij | 6. S. Nicolai Ep. et Conf., dupl. |
+| 14 | e | vij | 7. S. Ambrosii Ep., Conf. et Eccl. Doct., dupl. |
+| 13 | f | vj | 8. Conceptio Immaculata B. Mariæ Virg., dupl. I cl. cum Octava communi. |
+| 12 | g | v | 9. De II die infra Oct. Concept. Immac., semid. |
+| 11 | A | iv | 10. De III die infra Oct. Concept. Immac., semid. Com. S. Melchiadis Papæ et Mart. |
+| 10 | b | iij | 11. S. Damasi I Papæ et Conf., semid. Com. Octavæ. |
+| 9 | c | Prid. | 12. De V die Infra Oct. Concept. immac., semid. |
+| 8 | d | Idib. | 13. S. Luciæ Virg. et Mart., dupl. Com. Oct. |
+| 7 | e | xix | 14. De VII die infra Oct. Concept. immac., semid. |
+| 6 | f | xviij | 15. Octava Conceptionis immaculatæ B. M. V., dupl. maj. |
+| 5 | g | xvij | 16. S. Eusebii Ep. et Mart., semidupl. |
+| 4 | A | xvj | 17. |
+| 3 | b | xv | 18. |
+| 2 | c | xiv | 19. |
+| 1 | d | xiij | 20. Vigilia. |
+| * | e | xij | 21. S. Thomæ Apostoli, dupl. II class. |
+| 29 | f | xj | 22. |
+| 28 | g | x | 23. |
+| 27 | A | ix | 24. Vigilia. |
+| 26 | b | viij | 25. Nativitas D. N. J. C., dupl. I class. cum Octava privilegiata III Ordinis. |
+| 25 25 | c | vij | 26. S. Stephani Protomartyris, dupl. II cl. cum Oct. simplici. Com. Oct. Nativitatis. |
+| 24 | d | vj | 27. S. Joannis Ap. et Ev., dupl. II cl. cum Oct. simplici. Com. Oct. Nativitatis. |
+| 23 | e | v | 28. Ss. Innocentium Martyrum, dupl. II cl. cum Oct. simplici. Com. Oct. Nativitatis. |
+| 22 | f | iv | 29. S. Thomæ Cantuariens. Ep. et Mart., dupl. Com. Oct. Nativitatis. |
+| 21 | g | iij | 30. De Octava Nativitatis, semid. |
+| 19 20 | A | Prid. | 31. S. Silvestri I Papæ et Conf., dupl. Com. Oct. Nativitatis. |
+
+*Hæc Epacta 19 nigra nunquam est in usu, nisi quando eodem anno concurrit cum Aureo numero xix.*
+
+—»o«—
+
+---
+
+<!-- p. [unnumbered; section-opening page] -->
+# Rubricae Generales Breviarii
+
+### Juxta Editionem Typicam Anni Jubilæi 1900
+
+Officium quotidie fit aut Duplex, aut Semiduplex, aut Simplex.
+
+#### I De Officio Duplici
+
+1. OFFICIUM fit Duplex in diebus a Feria quinta in Cœna Domini usque ad Feriam tertiam Paschæ inclusive, in Dominica in Albis, in Ascensione Domini, in Dominica Pentecostes, et duobus diebus sequentibus: in Festo Trinitatis, Corporis Christi, et Dedicationis propriæ Ecclesiæ: in Festis, quibus in Kalendario apponitur hæc vox, **Duplex**: in die octava Festi habentis Octavam: in Festo Patroni unius vel plurium alicujus loci, vel Titularis Ecclesiæ; et in Festis Sanctorum, qui apud quasdam Ecclesias, Religiones, vel Congregationes consueverunt solemniter celebrari, cum Officiis propriis a Sede Apostolica approbatis, aut ex ejusdem Sedis auctoritate receptis, vel recipiendis (servata tamen forma hujus Breviarii) alioquin de Communi, etiamsi prædicta Festa in hoc Kalendario non sint descripta. Præterea Officium fit Duplex pro Defunctis in Commemoratione omnium fidelium Defunctorum, et in die obitus, seu depositionis Defuncti, ut in eodem Officio dicitur, circa finem Breviarii.
+
+2. Festum Duplex celebratur aut de eodem fit Commemoratio eo die quo cadit, nisi illud contingat transferri aut penitus omitti, ut dicetur in Rubrica de Translatione Festorum.
+
+3. Habet primas et secundas Vesperas integras, nisi cum alio simili concurrat, ut dicetur in Rubrica de Concurrentia Officii, et totum Officium fit de Duplici, incipiendo a primis Vesperis, usque ad Completorium sequentis diei inclusive: nisi aliter in propriis locis assignetur. Officium autem Defunctorum habet tantum primas Vesperas, Matutinum et Laudes, ut circa finem Breviarii ponitur.
+
+4. In utrisque Vesperis, Matutino et Laudibus tantum, non autem in aliis Horis, duplicantur Antiphonæ, id est, integræ dicuntur in principio et in fine Psalmorum.
+
+5. Ad Matutinum regulariter dicuntur tres Nocturni, cum novem Psalmis, et totidem Lectionibus, hoc est, in unoquoque Nocturno tres Psalmi, et tres Lectiones, præterquam in Paschate Resurrectionis et Pentecoste cum duobus sequentibus diebus, in quibus dicitur unum tantum Nocturnum cum tribus Psalmis, et totidem Lectionibus, ut ibidem ponitur.
+
+6. Preces ad Primam et Completorium, et Suffragia de sancta Maria, sancto Joseph, Apostolis, Titulo, et Pace ad Vesperas et Laudes non dicuntur in Officio Duplici, ut etiam in propriis eorum Rubricis dicetur.
+
+7. Quomodo sit ordinandum Officium Duplex in Vesperis, Matutino et ceteris Horis: similiter et de Antiphonis, Responsoriis, Versibus, Capitulis et aliis in eo dicendis, habentur inferius de singulis propriæ Rubricæ.
+
+#### II De Officio Semiduplici
+
+1. Officium fit Semiduplex diebus Dominicis (excepta Dominica in Albis, in qua fit Duplex): et diebus infra Octavas: item in Festis, quibus in Kalendario ponitur hæc vox, **Semiduplex**, et in Festis propriis quorumdam locorum, seu Congregationum, quæ solemnius apud illas, quam Simplicia, consueverunt celebrari.
+
+2. De Festo Semiduplici fit eo die quo cadit, aut de illo ponitur Commemoratio, vel penitus omittitur, ut dicetur in Rubrica de Translatione Festorum.
+
+3. Habet totum Officium integrum, sicut Duplex, sed non duplicantur Antiphonæ.
+
+4. Ad Matutinum dicuntur tres Nocturni, præterquam infra Octavas Paschæ et Pentecostes, in quibus dicitur unum Nocturnum cum tribus Psalmis et totidem Lectionibus. Et regulariter quando dicuntur tres Nocturni, dicuntur novem Psalmi et totidem Lectiones; exceptis iis Dominicis, in quibus fit Officium ut in Psalterio, quæ habent xviii Psalmos, ut ibi.
+
+5. Quomodo sit ordinandum Officium Semiduplex tam in Festis, quam in Dominicis et infra Octavas, item et de Antiphonis, Versibus, Responsoriis et hujusmodi aliis, et quando in Semiduplici dicantur Preces ad Primam et Completorium, et Suffragia de Sanctis ad Vesperas et Laudes, habentur inferius de singulis propriæ Rubricæ.
+
+#### III De Officio Simplici
+
+1. Officium fit Simplex in diebus ferialibus, quando occurrit fieri de Feria: item in Festis, quibus in Kalendario non apponitur hæc vox, Duplex vel Semiduplex, vel de Octava: item quando fit de beata Maria in Sabbato, ut in ejus Rubrica dicetur.
+
+2. De Festo Simplici fit eo die quo cadit; nisi eodem die occurrat fieri Officium novem Lectionum, vel de sancta Maria in Sabbato, vel de aliquibus Feriis, quibus Festum Simplex cedit, ut dicetur in Rubricis de Feriis et de Commemorationibus.
+
+3. Habet tantum primas Vesperas, in quibus dicuntur Psalmi Feriales, et a Capitulo fit de Festo, nisi cum eo concurrat Officium novem Lectionum, quia tunc de eo fit sola Commemoratio, ut dicetur in Rubrica de concurrentia Officii: et ejus Officium terminatur ad Nonam, et nihil amplius fit de eo, nec Commemoratio.
+
+4. Ad Matutinum post Invitatorium et Hymnum de Festo, dicitur unum tantum Nocturnum cum duodecim Psalmis, ut in Psalterio, secundum Feriam quæ occurrit; et tres Lectiones leguntur, ut infra in Rubrica de Lectionibus habetur.
+
+5. Quomodo sit ordinandum Officium Simplex ad Vesperas, Matutinum et alias Horas; item et de Antiphonis, Versibus, Responsoriis et aliis, ac quando Preces, et Suffragia de Sanctis dicenda sint, habentur inferius propriæ Rubricæ.
+
+#### IV De Dominicis
+
+1. De Dominica semper fit Officium in Dominicis Adventus, et in Dominicis a Septuagesima usque ad Dominicam in Albis inclusive, quocumque Festo Duplici, vel Semiduplici adveniente: quia tunc Festum transfertur, aut de eo fit Commemoratio aut penitus omittitur (ut in Rubrica de Translatione Festorum dicetur), nisi illud Festum sit Duplex primæ classis; quia tunc fit tantum de hujusmodi Festo, cum Commemoratione Dominicæ; quibusdam Dominicis exceptis, ut dicetur in Rubrica de Commemorationibus. In aliis Dominicis per annum fit de Dominica, quando in eis non occurrit Festum Duplex; quia tunc fit de Duplici cum Commemoratione Dominicæ in utrisque Vesperis et Laudibus, et ad Matutinum legitur nona Lectio de Homilia Dominicæ, ut dicetur in Rubrica de Commemorationibus. Si Semiduplex eodem die occurrat, de eo fit Commemoratio, ut pariter dicetur in Rubrica de Commemorationibus.
+
+2. De Dominica infra Octavas Nativitatis, Epiphaniæ, Ascensionis et Corporis Christi occurrenti, Officium fit sicut infra Octavam, et in Proprio de Tempore, cum Commemoratione Octavæ et sine Precibus et Suffragiis Sanctorum. In Dominicis vero, quæ occurrunt infra alias Octavas, totum Officium fit de Dominica, ut in Psalterio et in Proprio de Tempore, cum Commemoratione Octavæ, omissis etiam dictis Precibus et Suffragiis, ut supra. De Dominica occurrente in die Octava fit Commemoratio, sicut dictum est, quando in ea fit de Festo Duplici, præterquam in die Octava Epiphaniæ, in qua nihil fit de Dominica, quia ejus Officium ponitur in Sabbato præcedenti.
+
+3. Positum est autem Officium sex Dominicarum post Epiphaniam, et vigintiquatuor post Pentecosten, ut compleatur numerus triginta Dominicarum, quæ esse possunt ab Epiphania usque ad Septuagesimam, et a Pentecoste usque ad Adventum; ne ulla ex his Dominicis vacet, quin saltem de ea fit Commemoratio. Nam quæ aliquando supersunt post Epiphaniam ante Septuagesimam, ponuntur post xxiii a Pentecoste, hoc ordine:
+
+4. Si Dominicæ post Pentecosten fuerint xxv, Dominica xxiv post Pentecosten erit quæ est vi post Epiphaniam. Si fuerint xxvi, Dominica xxiv erit quæ est v; et xxv quæ est vi. Si fuerint xxvii, Dominica xxiv erit quæ est iv; et xxv quæ est v, et xxvi erit vi. Si fuerint xxviii, Dominica xxiv erit iii, et xxv erit iv, et xxvi erit v, et xxvii erit vi; et ultimo loco semper ponitur, quæ in ordine est xxiv post Pentecosten, etiamsi post Pentecosten aliquando non sint nisi xxiii Dominicæ. Tunc enim xxiv ponitur loco xxiii, et Officium xxiii ponitur in præcedenti Sabbato, quod non sit impeditum Festo novem Lectionum; alioquin in alia præcedenti die similiter non impedita, in qua fiat Officium de Feria, cum Commemoratione Festi Simplicis, si occurrat; et in ea legantur tres Lectiones de Homilia Dominicæ, omissis Lectionibus Scripturæ illius Feriæ: et in Laudibus dicatur Antiphona ad Benedictus, et Oratio de Dominica xxiii. Quod si tota Hebdomada impedita sit Festis novem Lectionum, etiam translatis, vel aliqua Octava, tunc in Sabbato legatur nona Lectio de Homilia Dominicæ xxiii, et de ea fiat Commemoratio in Laudibus tantum, cum Antiphona et Oratione propria.
+
+5. Cum vero interdum contingat, ut Dominica tertia, vel quarta, vel quinta, vel sexta post Epiphaniam supersit, nec possit poni etiam post xxiii a Pentecoste, tunc de ea fit Officium in Sabbato ante Dominicam Septuagesimæ, ut dictum est supra, numero præcedenti.
+
+6. De Dominica secunda post Epiphaniam, quando Septuagesima venerit immediate post Octavam Epiphaniæ, quomodo agendum sit Officium, habetur in propria Rubrica ante Dominicam primam post Epiphaniam.
+
+7. Cum autem in Proprio de Tempore dicitur aliqua Dominica esse prima mensis, in qua primo ponitur initium libri de Scriptura cum sua historia, id est, cum Responsoriis, animadvertendum est, eam dici primam Dominicam mensis, quæ venit in Kalendis illius mensis, vel est proximior Kalendis, hoc modo. Si Kalendæ venerint in secunda, et tertia, et quarta Feria, Dominica prima mensis erit quæ præcedit Kalendas, licet veniat in præcedenti mense: si autem Kalendæ venerint in quinta, et sexta Feria et in Sabbato, prima Dominica erit quæ sequitur post ipsas Kalendas. Dominica autem prima Adventus non sumitur ea, quæ est proximior Kalendis Decembris, sed Festo sancti Andreæ, vel quæ venerit in ipso Festo.
+
+8. Officium Dominicæ fit Semiduplex, et incipit a primis Vesperis in Sabbato: et habet totum Officium integrum usque ad Completorium Dominicæ inclusive, nisi cum aliquo concurrat, ut dicetur in Rubrica de Concurrentia Officii.
+
+9. Ad Matutinum dicuntur tres Nocturni cum Psalmis, ut in Psalterio, et leguntur novem Lectiones, ut in Proprio de Tempore.
+
+10. Quomodo autem sit ordinandum ejus Officium, insuper et de Lectionibus, Responsoriis et aliis, et quomodo initia librorum Scripturæ cum sua historia sint ponenda, habentur de singulis inferius propriæ Rubricæ.
+
+#### V De Feriis
+
+1. Officium Feriale, hoc est, Simplex de Tempore occurrenti, prout in Psalterio et Proprio de Tempore habetur, fit semper in Feriis Adventus, Quadragesimæ, Quatuor Temporum, Vigiliarum, et in Feria secunda Rogationum, quando infra Hebdomadam non occurrit Festum Duplex, vel Semiduplex, vel de Octava: quia tunc de hujusmodi Feriis fit Commemoratio, ut dicetur in Rubrica de Commemorationibus. Si vero in eis occurrat Festum Simplex, de eo fit tantum Commemoratio. Item per annum fit Officium de Feria illis diebus, quibus infra Hebdomadam in Kalendario non ponitur aliquod Festum Duplex, Semiduplex, vel Simplex, et non occurrit aliqua Octava, vel Officium sanctæ Mariæ in Sabbato, vel aliquod Festum solemne, aut consuetum in aliqua Ecclesia celebrari, quamvis in Kalendario hujus Breviarii non sit descriptum.
+
+2. Officium Feriæ in Adventu, Quadragesima, Quatuor Temporibus, Vigiliis, et prima die Rogationum incipit a Matutino: in aliis vero Feriis per annum, inde fit de Feria, ubi desinit Officium præcedentis diei, ita ut si præcedenti die fuerit Duplex, vel Semiduplex, Officium Feriæ incipiat sequenti die a Matutino: si præcedenti die fuerit Festum Simplex, de Feria fiat a Vesperis illius præcedentis diei inclusive. Similiter et quando in Feria quarta et sexta Quatuor Temporum Septembris, et in Feria quarta Cinerum, ac in Vigiliis occurrit aliquod Festum Simplex, de quo fieri debet Commemoratio, tunc præcedenti die (nisi fuerit Festum novem Lectionum) in Vesperis fit de Feria, ut in Psalterio, sine Precibus, cum Oratione Dominicæ præcedentis, et cum Commemoratione Festi trium Lectionum in sequenti Feria occurrentis, ut dicetur infra in Rubrica de Concurrentia. Terminatur autem Officium de Feria subsequente Duplici, vel Semiduplici, ad Nonam: subsequente vero Simplici, de quo fieri debeat Officium, ad Capitulum Vesperarum, quia inde fit de Festo Simplici absque ulla deinceps Commemoratione Feriæ.
+
+3. Ad Matutinum dicitur unum tantum Nocturnum cum duodecim Psalmis, secundum ordinem Feriarum in Psalterio, et tribus Lectionibus, ut in Proprio de Tempore.
+
+4. Excipiuntur ab hoc ordinario Officii Ferialis tres Feriæ majores Hebdomadæ sanctæ, et Feriæ Octavarum Paschæ et Pentecostes, in quibus fit Officium, ut in propriis locis ponitur.
+
+5. Quomodo ordinandum sit Officium de Feria ad Matutinum et alias Horas, item de Lectionibus et Responsoriis, et quando dicendæ sint Preces feriales, ac de aliis, quæ ad Officium Feriæ pertinent, habentur inferius de singulis propriæ Rubricæ.
+
+#### VI De Vigiliis
+
+1. De Vigilia fit Officium in omnibus Vigiliis per annum quæ jejunantur, ubi in Kalendario adnotatur hæc vox **Vigilia**: nisi in die Vigiliæ occurrat Festum novem Lectionum, vel Octava; tunc enim in Officio novem Lectionum legitur nona Lectio de Homilia Vigiliæ, et fit Commemoratio de ea ad Laudes tantum, cum Antiphona ad Benedictus, et ℣. Feriæ occurrentis de Psalterio, et Oratione Vigiliæ; præterquam in illis Festis majoribus, quæ inferius excipiuntur.
+
+2. Si Vigilia occurrat in Dominica, de ea fit Officium in Sabbato, quod non sit impeditum Officio novem Lectionum: quia tunc de Vigilia fit tantum Commemoratio, ut dictum est. Excipitur ab hac regula Vigilia Nativitatis et Epiphaniæ Domini; quæ si venerint in Dominica, fit de illis, ut in propriis Rubricis dicitur. Si autem in Vigilia occurrat Festum solemne alicujus loci, vel ex solemnioribus infra annum, quæ inferius in Rubrica de Commemorationibus numerantur (veluti si in Vigilia sancti Joannis Baptistæ venerit Festum Corporis Christi), nihil tunc prorsus, nec Commemoratio fit de Vigilia, excepta Vigilia Epiphaniæ. Idem servetur quando aliqua Vigilia venerit in Adventu, Quadragesima et Quatuor Temporibus, nulla enim in his Feriis de Vigilia fit Commemoratio.
+
+3. Officium Vigiliæ incipit ad Matutinum, sicut dictum est in superiori Rubrica de Feriis: terminatur autem ad Nonam, quia Vesperæ sunt de sequenti Festo.
+
+4. Officium Vigiliæ totum fit de Feria occurrenti, ut in Psalterio: et tres Lectiones leguntur de Homilia in Evangelium Vigiliæ, ut in propriis locis assignatur, cum tribus Responsoriis de Feria occurrenti, ordine in Rubrica de Responsoriis descripto. Dicuntur Preces feriales, et Commemorationes communes, aliaque omnia sicut in Feriis Adventus, Quadragesimæ et Quatuor Temporum, de quibus et de aliis circa ordinandum ejus Officium habentur inferius propriæ Rubricæ.
+
+5. Excipitur ab hoc ordinario Vigiliarum, quæ jejunantur, Vigilia Pentecostes, quæ cum tribus Nocturnis sub Officio Semiduplici celebratur, ut ibi; et Vigilia Nativitatis Domini, quæ, Nocturno Feriæ excepto, in Laudibus et Horis habet reliquum Officium Duplex. In Vigiliis vero Epiphaniæ et Ascensionis, quæ non jejunantur, fit Officium, ut in propriis locis notatur.
+
+#### VII De Octavis
+
+1. De Octava fit Officium, vel saltem Commemoratio (quando aliquo Festo, vel Dominica impeditur) per octo dies continuos. Fit de Octava in Paschate Resurrectionis, in Ascensione Domini, in Pentecoste, in Festo Corporis Christi, in Festis quibus in Kalendario apponitur Octava. Item in Festo Dedicationis propriæ Ecclesiæ, et in Festo principalis Patroni, et Titularis loci vel Ecclesiæ, et in Festis aliorum Sanctorum, quæ apud quasdam Ecclesias, Congregationes et Religiones consueverunt solemniter cum Octavis celebrari, nisi illa Festa venerint in Quadragesima, quo tempore omittitur Officium cujuscumque Octavæ. Quod si aliquod Festum, quod celebrari solet cum Octava, paulo ante Quadragesimam venerit, et jam per aliquot dies factum sit Officium de ejus Octava, adveniente Quadragesima, nihil amplius fit de ea, nec Commemoratio. Et idem servetur de Octavis nondum absolutis, quando supervenit Festum Pentecostes, et dies xvii Decembris.
+
+2. In Pascha Resurrectionis et Pentecostes Officium Octavæ terminatur in Sabbato sequenti ad Nonam.
+
+3. Infra Octavas fit de Festis Duplicibus et Semiduplicibus occurrentibus, ac etiam Duplicibus translatis, de quibus dicetur infra Tit. X de Translatione Festorum, cum Commemoratione Octavæ; nisi illa Festa sint de solemnioribus enumeratis in sequenti Rubrica de Commemorationibus, in quibus nulla fit Commemoratio de Octava, exceptis Octavis Nativitatis, Epiphaniæ et Corporis Christi, de quibus fit semper Commemoratio, quocumque Festo in illis occurrente. Infra Octavas autem Paschæ et Pentecostes non fit de Festo aliquo, etiam principali Patrono vel Titulari Ecclesiæ, vel Dedicatione ejusdem, sed transfertur post Octavam, si transferri valeat, secus de eo fit Commemoratio, ut dicetur in eadem Rubrica de Translatione Festorum. Infra Octavam Epiphaniæ fit tantum de Duplicibus primæ classis (non tamen in die Octava), cum Commemoratione Octavæ. Infra Octavam Corporis Christi fit tantum de Duplicibus, non tamen translatis, nisi fuerint primæ vel secundæ classis, cum Commemoratione Octavæ. De Semiduplicibus vero, cum non transferantur, infra eam fit Commemoratio, ut dicetur in præfata Rubrica. De Simplicibus infra quascumque Octavas occurrentibus, item fit tantum Commemoratio, præterquam in duobus diebus post Pascha et Pentecosten, ut dicetur in sequenti Rubrica de Commemorationibus. De Dominicis infra Octavas occurrentibus fit Officium, ut dictum est supra in Rubrica de Dominicis. Si duæ Octavæ simul occurrant, (ut Octava sancti Joannis Baptistæ, et Octava Corporis Christi, vel Octava Patroni vel Titularis Ecclesiæ cum alia Octava), quando non erunt celebranda Festa novem Lectionum, vel dies Dominicus, fiet Officium de digniori, cum Commemoratione alterius. De die autem Octava cujuscumque Festi fit totum Officium Duplex, cum Commemoratione diei infra aliam Octavam. De Festis occurrentibus in die Octava servetur quod dicitur in Rubrica de Translatione Festorum.
+
+4. Officium de Octava fit cum tribus Nocturnis, novem scilicet Psalmis et novem Lectionibus (exceptis Octavis Paschæ et Pentecostes, in quibus fit cum uno Nocturno, ut suis locis ponitur), et omnia dicuntur sicut in die Festi, præter Lectiones; quarum primæ tres semper sunt de Scriptura occurrente in Officio de Tempore, præterquam infra Octavam Assumptionis beatæ Mariæ, in qua singulis diebus positæ sunt Lectiones propriæ de Canticis Canticorum: aliæ Lectiones secundi et tertii Nocturni dicuntur quæ infra Octavam positæ sunt. Infra Octavam vero Patroni, vel Titularis Ecclesiæ, aut alterius Festi, quod in aliquibus Ecclesiis consuevit cum Octava celebrari, si apud illas Ecclesias non habentur propriæ et approbatæ Lectiones pro secundo et tertio Nocturno, infra Octavam repetantur Lectiones positæ in Communi Sanctorum, si de Sanctis fiat Octava, alioquin Lectiones diei Festi.
+
+5. Infra Octavam Officium fit Semiduplex, in die Octava Duplex. In Vesperis infra Octavam omnia dicuntur sicut in secundis Vesperis Festi: et primis Vesperis diei Octavæ omnia sicut in primis Vesperis Festi, nisi aliter in propriis locis notetur.
+
+6. Infra Octavas non fiunt Suffragia consueta de Sanctis, nec dicuntur Preces ad Primam et Completorium, etiamsi fiat Officium de Dominica, vel Festo Semiduplici. In aliis, quomodo sit ordinandum Officium de Octava, habentur inferius propriæ Rubricæ.
+
+#### VIII De Officio S. Mariæ in Sabbato
+
+1. In omnibus Sabbatis per annum extra Adventum et Quadragesimam, ac nisi Quatuor Tempora aut Vigiliæ occurrant, vel nisi fieri debeat de Feria propter Officium alicujus Dominicæ aliquando infra Hebdomadam ponendum, ut in Rubrica de Dominicis dictum est: et nisi fiat Officium novem Lectionum, vel de Octava Paschæ et Pentecostes, semper fit Officium de sancta Maria, eo modo, quo fit de Festo Simplici, quemadmodum circa finem Breviarii disponitur. De Festo autem Simplici, in Sabbato occurrente, fit tantum Commemoratio.
+
+2. Cum vero supradictis diebus fieri non potest Officium de sancta Maria, nulla etiam fit Commemoratio de ea propter Sabbatum; sed tantum in Semiduplicibus (quando ejus Officium parvum non dicitur) fit consueta ejus Commemoratio per annum cum aliis Suffragiis positis in Psalterio post Vesperas Sabbati.
+
+3. Ejus Officium in Sabbato incipit Feria sexta ad modum Festi Simplicis, a Capitulo, et terminatur ad Nonam Sabbati. Si autem Feria sexta occurrat Officium novem Lectionum, in Vesperis fit tantum Commemoratio de sancta Maria, cum Antiphona, Versu et Oratione, quæ habentur in Officio ejus in Sabbato, nisi illud Officium novem Lectionum sit de eadem beata Maria, quia tunc nulla alia Commemoratio de ea facienda est.
+
+4. Ad Matutinum, post Invitatorium et Hymnum de sancta Maria, dicitur unum Nocturnum cum duodecim Psalmis ferialibus, ut in Psalterio. Versus de sancta Maria, prima et secunda Lectio ex Scriptura de Tempore occurrente; tertia Lectio et alia omnia tam in Matutino quam in Laudibus et Horis, ut in Officio sanctæ Mariæ in Sabbato assignantur.
+
+5. Dicuntur Preces Dominicales ad Primam et Completorium, et fiunt Suffragia consueta de sancto Joseph, de Apostolis, de Titulo, et de Pace, et tempore Paschali sola Commemoratio de Cruce, ut in secunda Feria post Octavam Paschæ. Post Nonam nihil fit de ea, nisi consueta ejus Commemoratio cum aliis Suffragiis, quando dicenda sunt in Officio de Dominica.
+
+#### IX De Commemorationibus
+
+1. Commemorationes fiunt de Festis Simplicibus, quando in eorum diebus incidit Festum novem Lectionum etiam translatum, vel Dominica, vel Octava, vel Sabbatum: et quando fieri debet de Feria, ut ponatur Officium alicujus Dominicæ, quæ eo anno supersit.
+
+2. De Feriis Adventus, Quadragesimæ, Quatuor Temporum, Vigiliarum, et secunda Rogationum fit Commemoratio, quando Festum novem Lectionum in illis Feriis occurrit. Si Simplex Festum in eisdem Feriis occurrat, Officium fit de Feria, et Commemoratio de Festo Simplici.
+
+3. Præterea fit Commemoratio de Dominicis a Pentecoste usque ad Adventum, et ab Epiphania usque ad Septuagesimam, et a Dominica in Albis usque ad Pentecosten exclusive, quando Festo Duplici impediuntur. De aliis Dominicis nulla fit Commemoratio occurrente Festo Duplici, quia Festum in illis occurrens transfertur, aut de eo fit Commemoratio, ut dicetur in sequenti Rubrica de Translatione Festorum: nisi illud Festum fuerit principalis Patroni, vel Tituli, aut Dedicationis ipsius Ecclesiæ, non autem alicujus Capellæ vel Altaris ejusdem Ecclesiæ; et tunc de hujusmodi principali Festo fit tantum in eo loco vel Ecclesia, cujus est Patronus vel Titulus aut Dedicatio, cum Commemoratione Dominicæ; excepta Dominica prima Adventus, Dominica prima Quadragesimæ, Dominica Passionis, Dominica Palmarum, Dominica Paschæ, Dominica in Albis, ac Dominica Pentecostes et Sanctissimæ Trinitatis: in quibus hujusmodi occurrens Festum transfertur in sequentem diem similiter non impeditam; dummodo non fuerit infra majorem Hebdomadam, et per Octavam Paschæ et Pentecostes: quibus diebus non fit de aliquo Festo Duplici occurrente. Idem dicendum de aliis Festis primæ classis occurrentibus in præfatis Dominicis Majoribus.
+
+4. De Octava etiam, quando Festum novem Lectionum vel Dominica impeditur, fit Commemoratio, nisi illud Festum novem Lectionum fuerit solemne principale alicujus loci, ut supra. Nam in primis Vesperis et Laudibus hujusmodi Festi nulla fit Commemoratio Festi Simplicis occurrentis, nec alicujus Vigiliæ (excepta Vigilia Epiphaniæ), nec alicujus diei infra Octavam, nec alicujus præcedentis Festi novem Lectionum (nisi id Festum fuerit ex iis quæ infra in hac eadem Rubrica enumerantur), nec diei Octavæ, nec Dominicæ, si Festum illud solemne celebretur Feria secunda: exceptis Dominicis Adventus, et Dominicis a Septuagesima usque ad Octavam Paschæ inclusive: de quibus Dominicis, sicut etiam de Feriis Adventus, Quadragesimæ, Quatuor Temporum, et secundæ Rogationum semper fit Commemoratio, quocumque Festo adveniente. Quod si hujusmodi Festum solemne venerit in quacumque Dominica, fit Commemoratio de ea in utrisque Vesperis et Laudibus. Et similiter si occurrat in die Octava alicujus Festi habentis Octavam, de ea fiet Commemoratio etiam in utrisque Vesperis et Laudibus. In secundis autem Vesperis Festi prædicti fit Commemoratio de Duplici, Semiduplici, et Dominica sequentibus, et non de aliis.
+
+5. Idem servatur in quibusdam Festis majoribus per annum, scilicet in Nativitate Domini (in cujus Officio nulla fit Commemoratio de sancta Anastasia, sed in secunda tantum Missa), in Epiphania, in Pascha Resurrectionis cum tribus proxime antecedentibus, et duobus sequentibus diebus; in Ascensione Domini, in Pentecoste, cum duobus sequentibus diebus, in Festo Corporis Christi, et in Festo Sacratissimi Cordis Jesu, in Festis Nativitatis sancti Joannis Baptistæ, sancti Joseph, sanctorum Apostolorum Petri et Pauli, Immaculatæ Conceptionis, Annuntiationis et Assumptionis beatæ Mariæ, in Festo omnium Sanctorum, et in Festo Dedicationis propriæ Ecclesiæ: in quibus Festis fiunt Commemorationes eo modo tantum quo dictum est supra de Festo solemni alicujus loci.
+
+6. In Festis autem secundi ordinis; videlicet, Circumcisionis, Sanctissimi Nominis Jesu, Trinitatis, Purificationis, Visitationis, Nativitatis et in Solemnitate Ssmi Rosarii beatæ Mariæ, in Natalitiis undecim Apostolorum et Evangelistarum, in Festo Patrocinii sancti Joseph, in Festo pretiosissimi Sanguinis D. N. J. C., et Inventionis sanctæ Crucis, in Festo sancti Joachim Patris beatæ Mariæ Virginis, et sanctæ Annæ Matris ejusdem, in Festo sancti Laurentii, et Dedicationis sancti Michaëlis Archangeli, in primis Vesperis fit Commemoratio Festi Duplicis eo die celebrati, nisi aliter in propriis locis notetur: de Dominica vero, de die infra Octavam, et de Festis Semiduplicibus non fit Commemoratio, eo modo, quo nec in Festo solemni alicujus loci, ut dictum est supra. De Simplicibus et Vigiliis in his Festis occurrentibus legitur nona Lectio, et fit Commemoratio in Laudibus tantum. In secundis autem Vesperis fit Commemoratio de quocumque sequenti Festo, etiam Simplici, et de die infra Octavam, si de ea fieri debeat Officium die sequenti. De Octavis Nativitatis Domini, Epiphaniæ et Corporis Christi, semper fit Commemoratio in utrisque Vesperis et Laudibus, quandocumque contigerit infra illas de aliquo alio Festo Officium celebrari juxta Rubricam de Octavis, num. 3.
+
+7. De Dominicis et Feriis Adventus et Quadragesimæ Commemoratio fit in utrisque Vesperis et Laudibus. De Feriis Quatuor Temporum, Vigiliarum et secunda Rogationum, quando de illis Commemoratio fieri debet, fit in Laudibus tantum. De Festis autem Simplicibus (nisi in diebus supradictis occurrant) Commemoratio fit in primis Vesperis et Laudibus eo die, quo in Kalendario assignantur. De aliis vero Dominicis per annum, et Octavis, Commemoratio fit in utrisque Vesperis et Laudibus, nisi concurrant cum supra enumeratis Festis. De Festis Duplicibus et Semiduplicibus, quoties, juxta sequentem Rubricam de Translatione Festorum, reduci debent ad modum Simplicis, fit pariter Commemoratio, ad instar diei Octavæ et Dominicæ, in utrisque Vesperis et Laudibus, præterquam in omnibus Duplicibus primæ classis, exceptis eorum secundis Vesperis, si hujusmodi Commemoratio facienda sit die sequenti.
+
+8. Commemorationes fiunt hoc modo: Post Orationem diei, in primis Vesperis dicitur Antiphona quæ posita est ad Magnificat, et in Laudibus quæ posita est ad Benedictus in Communi (si propriam non habuerit) conveniens ejus Officio, cujus fit Commemoratio. Post Antiphonam dicitur Versus, inde sumendus, unde sumpta est Antiphona, scilicet post Hymnum Vesperarum et Laudum: deinde dicitur Oratio. Si Antiphona et Versus Festi simplicis, de quo fit Commemoratio, sumenda essent ex eodem Communi, unde sumpta sunt in Officio diei; in Festo Commemorationis variantur, ita ut in Vesperis sumantur ex Laudibus, et in Laudibus ex primis Vesperis ejusdem Communis, nisi aliter signetur. Si vero ex eodem Communi, unde sumpta sunt in Officio diei, sumenda essent Antiphona et Versus Festi redacti ad instar simplicis, tunc in primis Vesperis Antiphona et Versus sumantur e secundis; si Festum utrasque Vesperas habeat, in Laudibus e primis Vesperis, et in secundis Vesperis Antiphona sumatur e Laudibus et Versus e primis Vesperis, nisi aliter signetur: excepto casu, quo Commemoratio alicujus S. Virginis facienda sit in Festo alterius S. Virginis; tunc enim in primis Vesperis pro S. Virgine de qua agitur Commemoratio, Antiphona sumenda erit e Laudibus. Quando vero Festum ad instar Simplicis recolendum Commemorationem in secundis Vesperis ob Festum duplex primæ vel secundæ classis immediate sequens non habeat, fit ut supra dictum est de Festis simplicibus. Et similiter si in secundis Vesperis sanctæ Angelæ Mericiæ, aut alterius Sanctæ novem Lectionum fieri debeat Commemoratio beatæ Mariæ, pro ejus Officio in sequenti Sabbato celebrando, ne repetatur ℣. **Diffúsa est grátia**, dicatur ℣. **Benedícta tu**, ex Laudibus. Si item occurrat, ut eadem sit Oratio Festi de quo fit Officium, et ejus de quo fit Commemoratio, mutetur Oratio pro Commemoratione in aliam de Communi. Si de Tempore fiat Commemoratio, de Dominica scilicet, vel Feria, Antiphona et Versus ante Orationem eodem modo sumantur ex Proprio de Tempore, si habuerit proprium, alioquin de Psalterio, Oratio vero ex Proprio de Tempore.
+
+9. Quando fit Commemoratio de Dominica, vel Feria, quæ habent propriam Homiliam, nona Lectio in Officio diei novem Lectionum legitur de Homilia Dominicæ, vel Feriæ, quæ erit vel prima de Homilia Dominicæ, vel tres simul in una Lectione conjunctæ.
+
+10. Si in die, in quo fit Officium novem Lectionum, fiat Commemoratio de Festo trium Lectionum, nona Lectio legitur de Festo trium Lectionum, si propriam habuerit: si duas, ex duabus fiat una Lectio, quæ sit nona in Officio novem Lectionum. Quæ Lectio de Sancto non legitur, quando de eo fit Commemoratio in Dominicis, quæ habent nonum Responsorium, nec quando nona Lectio legenda est de Homilia Dominicæ vel Feriæ, ut supra; nec in Feriis, et aliis diebus, quando in Officio diei leguntur tantum tres Lectiones: nec etiam nona Lectio legitur de die infra Octavam, quando de ea fit Commemoratio in Dominica, vel aliquo Festo, licet habeat Evangelium proprium et Homiliam. Servata eadem regula, quando in Officio novem Lectionum fit Commemoratio de Festo Duplici aut Semiduplici redacto ad instar Simplicis, ut in sequenti Rubrica, de Sancto legenda est nona Lectio ad Matutinum composita ex singulis ejus Lectionibus historicis secundi Nocturni per modum unius, præterquam in tota Octava Festi Corporis Christi, si de ea fiat Officium; quo in casu etiam omittenda nona Lectio Festi Simplicis.
+
+11. Quando contingit fieri plures Commemorationes, illæ semper præponantur, quæ ad Officium pertinent, cujuscumque sit ritus; exceptis illis, quæ ab Officio, de quo agitur, numquam separantur, uti de sancto Paulo Apostolo in Cathedra sancti Petri etc., prout in Rubricis specialibus suo loco dicetur. Deinde servetur hic ordo: 1 De Dominica privilegiata, 2 de die Octava, 3 de Duplici majori, 4 de Duplici minori, ad instar Simplicium redactis, 5 de Dominica communi, 6 de die infra Octavam Corporis Christi, 7 de Semiduplici, 8 de die infra Octavam communem ad simplicem ritum pariter redactis, 9 de Feria majori vel Vigilia, 10 de Simplici. De sancta Maria (quando in secundis Vesperis Festi novem Lectionum, quod Feria sexta celebratum sit, de ea fieri debet Commemoratio pro Officio sequentis Sabbati) fiat ante Festum simplex in Sabbato occurrens. De Festo simplici fit Commemoratio ante Suffragia, seu communes Commemorationes de Cruce, sancta Maria, sancto Joseph, Apostolis et de Pace, et ante Commemorationem cujuscumque Tituli, vel Patroni Ecclesiæ, quæ etiam pro sui dignitate aliis Suffragiis prædictis præponeretur. De quibus Suffragiis, quomodo et quando facienda sint, habetur inferius propria Rubrica.
+
+#### X De Translatione Festorum
+
+1. Si aliquod Festum Duplex occurrat in Dominicis Adventus, et in Dominicis a Septuagesima usque ad Dominicam in Albis inclusive, in Vigilia et Festo Nativitatis Domini, in die Circumcisionis, in Festo ac tota Octava Epiphaniæ, in Feria quarta Cinerum, in tota majori Hebdomada, et infra Octavam Paschæ, in Ascensione Domini, in diebus a Vigilia Pentecostes usque ad Festum Sanctissimæ Trinitatis inclusive, in Festo Corporis Christi, et ejus die Octava, in Festo Sacratissimi Cordis Jesu, in Festis Immaculatæ Conceptionis, Annuntiationis et Assumptionis beatæ Mariæ Virginis, in Nativitate sancti Joannis Baptistæ, in Festo sancti Joseph Sponsi ejusdem beatæ Mariæ Virginis, sanctorum Apostolorum Petri et Pauli, ac Omnium Sanctorum, transfertur in primam diem Festo Duplici vel Semiduplici non impeditam, exceptis tamen Festis Nativitatis sancti Joannis Baptistæ, et sanctorum Apostolorum Petri et Pauli, quæ in die Octava Corporis Christi et in Festo Sacratissimi Cordis Jesu celebrantur: excepto quoque Festo quocumque solemni alicujus loci, quod in propria tantum Ecclesia, etiam in aliquibus ex supradictis diebus occurrens, scilicet in Dominicis secunda, tertia et quarta Adventus, et Quadragesimæ, Dominica Septuagesimæ, Sexagesimæ, et Quinquagesimæ, et diebus infra Octavam Epiphaniæ (ut in Rubrica de Commemorationibus dictum est) celebratur et excepto Festo primario solemni occurrente in Festo Sacratissimi Cordis Jesu. Si autem Festum Purificationis beatæ Mariæ Virginis venerit in aliqua Dominica secundæ classis, transfertur in Feriam secundam sequentem quamvis impeditam. Item si Festum Nativitatis sancti Joannis Baptistæ venerit in die Corporis Christi, transfertur in sequentem diem, cum Commemoratione Octavæ; et in secundis Vesperis Corporis Christi fit tantum Commemoratio sancti Joannis: sequentibus autem diebus fit Officium de eadem Octava Corporis Christi, cum Commemoratione Octavæ sancti Joannis. Dies autem Octava sancti Joannis tunc veniens in die Octava Corporis Christi, non transfertur, sed de illa eo anno fit tantum Commemoratio in utrisque Vesperis et Laudibus diei Octavæ Corporis Christi: et id semper servetur, quando Festum habens Octavam transfertur; ut non ideo dies Octava transfertur, sed ipsa die de ea fiat Commemoratio, quæ alias erat Octava, si Festum non fuisset translatum. Quod si Festum post totam suam Octavam transferri contigerit, illo anno celebretur sine Octava: nisi Titularis Ecclesiæ privilegio aliter fieri oporteat. Festa tamen Duplicia minora, exceptis illis Sanctorum Ecclesiæ Doctorum, si occursu Dominicæ, vel majoris Festi seu Officii quomodocumque impediantur, non transferuntur, sed ipso die quo cadunt, de eis fit in utrisque Vesperis et Laudibus Commemoratio, et legitur nona Lectio historica ad Matutinum, si tamen hæc eo die fieri possint; secus hujusmodi Festa Duplicia minora eo anno penitus omittuntur, ut in præcedenti Rubrica dictum est num. 7 et 10, et infra de Simplici dicetur num. 8. Iisdem comprehenduntur regulis alia Festa duplicia, quorum translationi in toto anni decursu locus non superest. Festa tamen Duplicia minora, quamquam non sint Doctoris Ecclesiæ, si quotannis a digniori Officio impediantur, reponuntur in prima die libera, tamquam in propria sede perpetuo recolenda.
+
+2. Si in die Octava alicujus Festi habentis Octavam, occurrat aliquod Festum Duplex ex majoribus supra in Rubrica de Commemorationibus enumeratis, fiat de Festo cum Commemoratione diei Octavæ: excepta die Octava Nativitatis Domini et Epiphaniæ, in quibus non fit de aliquo Festo, sed transfertur in primam diem similiter non impeditam. Si autem non fuerit ex prædictis Festis, fiat de Octava, et Festum transferatur in primam diem similiter non impeditam, et in eo fiat Commemoratio de Octava. Quod si transferri nequeat, de eodem quoque fiat Commemoratio, ut supra.
+
+3. Si aliquod Festum Duplex infra Octavam occurrens, alio majori Festo Duplici impediatur, transferatur in primam diem similiter non impeditam, et in eo fiat Commemoratio de Octava.
+
+4. Si in aliis Dominicis per annum a supradictis occurrat Festum Duplex, non transfertur, nec de eo fit Commemoratio, sed Officium, ut dictum est in Rubrica de Commemorationibus.
+
+5. Festum Semiduplex occurrens diebus supradictis, et infra Octavam Corporis Christi, et aliis Dominicis per annum, non transfertur, sed ipso die quo cadit, de eo fit Commemoratio in utrisque Vesperis et Laudibus, et legitur nona Lectio historica, aut illud penitus omittitur, ut supra de Duplici minori dictum est. Festum tamen Semiduplex, si quotannis ab Officio digniori impediatur, reponitur in prima die libera, tamquam in propria sede perpetuo celebrandum, uti de Duplici minori superius cautum est.
+
+6. Si duo vel plura Festa novem Lectionum simul eodem die veniant, fiat Officium de majori, idest de Duplici, et de Semiduplici fiat Commemoratio, ut supra. At si omnia fuerint Duplicia, vel omnia Semiduplicia, fiat de digniori, seu solemniori, videlicet, de Festo potioris ritus præ alio ritus inferioris, aut in paritate ritus de primario præ secundario, aut, iisdem primariis vel secundariis, de digniori ratione personæ, aut, in paritate dignitatis de fixo præ mobili, aut denique, ceteris paribus, de magis proprio præ minus proprio; et quæ Duplicia minoris solemnitatis sunt, si transferri valeant, transferantur: aliter de eis, quemadmodum de Semiduplicibus, fiat Commemoratio aut penitus omittantur, juxta superius explicata.
+
+7. Si plura Festa Duplicia ex iis quæ transferri possunt, transferenda sint, quod est magis solemne semper prius transfertur, et prius celebretur: alioquin si sunt æqualia, unum ante aliud transferatur eo ordine, quo erant celebranda in propriis diebus: quod etiam servabitur in Festis Duplicibus minoribus, et Semiduplicibus perpetuo impeditis.
+
+8. Festum Simplex pariter numquam transfertur: sed si de eo fieri non potest Officium, fiat Commemoratio, ut dictum est in Rubrica de Commemorationibus; si autem venerit in illis diebus, in quibus de Simplici nulla fit Commemoratio, eo anno non fit de eo amplius.
+
+9. Si aliquod Festum Duplex e supra recensitis quæ transferuntur, in quo notatum est fieri Commemorationem alicujus Sancti, transferatur propter advenientem Dominicam, vel aliud Festum majus, non tamen transfertur cum illo Commemoratio illius Sancti in eo assignata; sed dicta Commemoratio fit die suo in Dominica, vel alio Festo, in quo fieri possit, cum nona Lectione ejusdem, si propriam de vita Sancti habuerit: Festum vero Duplex transfertur sine ulla amplius Commemoratione Festi Simplicis prædicti. Quod etiam servatur in Commemorationibus occurrentibus in Vigiliis, cum de Vigilia veniente in Dominica fit in Sabbato præcedenti: tunc enim Commemoratio Festi Simplicis non fit in Officio Vigiliæ, sed in Dominica.
+
+#### XI De Concurrentia Officii
+
+1. Concurrentia Officii attendenda est semper in secundis Vesperis, quomodo sit ordinandum Officium cum sequenti die. Itaque cum dicitur Officium aliquod cum alio concurrere, intelligitur de præcedenti in secundis Vesperis cum sequenti in primis Vesperis.
+
+2. Duplici ergo in secundis Vesperis concurrente cum alio sequenti Duplici in primis, si utraque sint ejusdem solemnitatis, regulariter a Capitulo fit de sequenti cum Commemoratione præcedentis, nisi aliter in propriis locis adnotetur. Si vero non sint ejusdem solemnitatis, servetur differentia in Rubricis de Commemorationibus, et Translatione Festorum assignata: ut scilicet Festa majora habeant primas et secundas Vesperas integras, cum Commemoratione minorum, quando de eis fieri debet. Si autem post aliquod Festum ex iis, quæ in secundo ordine posita sunt in Rubrica de Commemorationibus, sequatur immediate aliud ex solemnibus majoribus, Vesperæ erunt de sequenti cum Commemoratione præcedentis. Inter Festa æqualis solemnitatis servetur hic ordo, ut Festa Domini præferantur omnibus aliis, et habeant utrasque Vesperas integras; sicuti Festa beatæ Mariæ, Festis Sanctorum: item Festa Angelorum, Nativitatis S. Joannis Baptistæ, sancti Joseph Sponsi beatæ Mariæ Virginis, et Apostolorum, ceteris aliis; et Festa illorum Sanctorum, qui in propriis locis vel Ecclesiis solemniter celebrantur, aliis in Kalendario descriptis.
+
+3. Duplici vero concurrente cum Festo Semiduplici, cum Dominica, cum die infra Octavam, cum Festo Simplici, et cum Officio beatæ Mariæ in Sabbato, omnia in secundis Vesperis de Duplici cum Commemoratione illorum: nisi illud Duplex fuerit de iis, quæ excipiuntur in Rubrica de Commemorationibus, in quibus aliquæ Commemorationes omittuntur. Duplici etiam, et quocumque Officio novem Lectionum concurrente cum Feria, vel potius sequente Feria, omnia de Duplici, et nihil de Feria sequenti. Sed si Festum celebretur in Adventu, et Quadragesima, fit semper Commemoratio de Feria, ut infra dicetur. Idem dicendum de Festis Simplicibus venientibus cum sequenti Festo novem Lectionum, de quibus etiam Commemoratio fit, non ratione concursus, sed quia eodem die occurrunt, ut dictum est in Rubrica de Commemorationibus.
+
+4. Semiduplici Festo, Dominica, et die infra Octavam, concurrentibus cum sequenti Duplici, omnia de Duplici cum Commemoratione illorum; nisi Duplex fuerit ex numero majorum, quæ supra in Rubrica de Commemorationibus numerata sunt, in quibus nulla fit Commemoratio præcedentis. Semiduplici Festo concurrente cum sequenti alio Semiduplici, vel cum Dominica, a Capitulo fit de sequenti, et Commemoratio præcedentis, nisi aliter signetur. Eodem vero Semiduplici concurrente cum sequenti die infra Octavam cum Officio beatæ Mariæ in Sabbato, omnia de Semiduplici, cum Commemoratione sequentis.
+
+5. Dominica concurrente cum sequenti Festo Semiduplici, et cum die infra Octavam, vel cum Festo Simplici, omnia de Dominica cum Commemoratione sequentis.
+
+6. Die infra Octavam concurrente cum sequenti Dominica, a Capitulo fit de sequenti, cum Commemoratione Octavæ. Die vero infra Octavam concurrente cum sequenti Semiduplici, Vesperæ erunt de sequenti, cum Commemoratione Octavæ. Dies infra Octavam cum Simplici proprie non habet concursum, quia in sequenti die infra Octavam non fit de Simplici nisi Commemoratio quæ et eadem ratione in præcedenti die infra Octavam fieri debet.
+
+7. Die Octava concurrente cum alia die Octava, ceteris paribus, a Capitulo fit de sequenti cum Commemoratione præcedentis, excepta Octava Corporis Christi, concurrente cum Octava sancti Joannis Baptistæ, in qua de sequenti fit Commemoratio, etiam occurrente Festo Duplici primæ classis Sacratissimi Cordis Jesu et quando aliter in propriis locis notatur. Die Octava concurrente cum sequenti Duplici minori, etiam translato, ceteris paribus, a Capitulo fit de sequenti, cum Commemoratione Octavæ (exceptis diebus Octavis Festorum primariorum beatæ Mariæ Virginis, etiam particularibus alicujus Religionis, sanctorum Angelorum, sancti Joannis Baptistæ, sancti Joseph Sponsi beatæ Mariæ Virginis et sanctorum Apostolorum, in quibus de sequenti fit tantum Commemoratio). Concurrente vero cum sequenti Duplici majori, etiam translato, totum Officium fit de sequenti cum Commemoratione Octavæ; excepta die Octava Epiphaniæ, Paschæ, Ascensionis, aliisque Festis primariis Domini, in quibus de sequenti fit tantum Commemoratio. Si autem sequens Festum, etiam translatum, fuerit ex solemnioribus supra enumeratis in Rubrica de Commemorationibus in secundo ordine numero 6, totum Officium fit de sequenti, cum Commemoratione Octavæ. Ceteris vero non paribus, quando dies Octava cum alia die Octava concurrit, Vesperæ integræ fiunt de illa, quæ est Festi potioris ritus, aut primarii, aut dignioris ratione personæ, cum Commemoratione alterius. Concurrente autem cum Festo Duplici, Vesperæ erunt, vel de die Octava, vel de Duplici cum Commemoratione alterius, prouti de Octavis inter se concurrentibus dictum est; exceptis Octavis Festorum Domini et beatæ Mariæ Virginis, ut supra.
+
+8. Simplex cum alio non potest concurrere in secundis Vesperis (licet cum ipse possit esse concursus in primis Vesperis), quia non habet secundas Vesperas, sed ejus Officium terminatur ad Nonam, et deinceps nihil fit de eo, nec Commemoratio. Si sequatur aliud Simplex, Psalmi erunt de Feria occurrente in Psalterio ad Vesperas, et a Capitulo fit de sequenti Simplici sine ulla Commemoratione præcedentis. Si sequatur Officium novem Lectionum, Vesperæ totæ erunt de eo sine ulla similiter Commemoratione Simplicis præcedentis. Si nullum Festum sequatur, subintrat Officium de Tempore et Vesperæ totæ erunt de Feria.
+
+9. Feria non potest concurrere cum alio Officio in secundis Vesperis, neque cum ipsa potest esse concursus in primis Vesperis: quia ejus Officium incipit et desinit, ubi desinit et incipit quodcumque aliud Officium. Quamvis proprie (si ei dandum est principium) sequente Feria post aliam Feriam, ejus Officium incipiat a Matutino, et terminetur sequente alia Feria ad Completorium; et ideo si Feria sequatur aliam Feriam, in Vesperis præcedentis Feriæ nihil fit de sequenti, quoad ea, quæ in sequenti Feria sunt propria. Verbi gratia, si in Vesperis Feriæ tertiæ ante Feriam quartam Cinerum fiat de Feria, dicitur Oratio Dominicæ præcedentis, non autem ea quæ est propria in sequenti Feria quarta Cinerum; nec ante Orationem dicuntur Preces, quæ dicendæ sunt in dicta Feria quarta Cinerum. Quod etiam fit quando Feria per annum præcedit Feriam Quatuor Temporum, vel Vigiliarum. Hac etiam ratione superius dictum est in concurrentia aliorum Officiorum, cum Feria nullum Officium concurrere, et nihil fieri de Feria præcedenti, adveniente alio Officio. Si autem de ea aliquando fieri debeat Commemoratio in Vesperis, non fit ratione concursus, sed quia eo die, quo Officium Feriarum Adventus et Quadragesimæ impeditur, illarum Commemoratio ratione temporis ex præcepto Ecclesiæ prætermitti non debet.
+
+10. Cum vero occurrit, ut Festum Simplex veniat in Feria quarta et sexta Quatuor Temporum, in Feria quarta Cinerum, et in Vigiliis quæ jejunantur, Vesperæ antecedentes (nisi ea die celebratum sit Festum novem Lectionum) erunt de Feria communi per annum, non autem de sequenti, ut dictum est, cum Commemoratione Festi Simplicis in sequenti Feria occurrentis. Quod ideo non fit, quia sequens Feria habeat primas Vesperas; sed quia cum Festum Simplex in sequenti die non habeat Officium propter Feriam prædictam in eo occurrentem, nec etiam convenit illud habere primas Vesperas in præcedenti die. Et eadem ratione, si Festum Simplex occurrat Feria quinta in Cœna Domini, in qua de eo non debet fieri Commemoratio, nulla etiam fiet Commemoratio in Vesperis Feriæ quartæ præcedentis.
+
+#### XII De Ordinando Officio ex Prædictis Rubricis
+
+1. Si quis velit ex supradictis Rubricis ordinare Officium occurrentis diei, videat in Kalendario et in Tabula Festorum mobilium, de quo fiat Officium sequenti die: et ut invenerit esse faciendum, sic ordinabit illud in Vesperis et aliis Horis nocturnis, et diurnis.
+
+2. Si ordinandum sit Officium de Tempore, id est, de Dominica vel Feria, recurrendum est semper ad Psalterium, ubi ordinate ponitur quod est commune Officii de Tempore, cum distributione Psalmorum, et ad Proprium de Tempore, ubi Lectiones et Responsoria, quædam Antiphonæ et Orationes ponuntur, quæ desunt in Psalterio. Invitatorium, Hymni, Capitula, Versus, Responsoria brevia et Antiphonæ, quæ diversis temporibus ponuntur in Proprio, dicuntur loco eorum quæ sunt in Psalterio: cum vero propria non fuerint dicuntur ut in Psalterio.
+
+3. Si Officium sit ordinandum de Sancto, recurrendum est semper ad Commune Sanctorum (nisi proprium habeat in Proprio Sanctorum): ubi pro qualitate Festi, si novem Lectionum, idest, Duplex, vel Semiduplex fuerit, omnia ordinate ponuntur, illis exceptis, quæ propria suis locis habentur. Si Festum fuerit trium Lectionum (Nocturno Feriæ et Lectionibus exceptis) omnia sumuntur de eodem Communi. Tres Lectiones primi Nocturni in Officio novem Lectionum, et prima et secunda Lectio, vel prima tantum in Festis trium Lectionum, sumuntur de Scriptura in Officio de Tempore, nisi aliæ in propriis locis ponantur.
+
+4. In majoribus Solemnitatibus et Festis per annum, totum Officium ordinatur ut in propriis locis ponitur.
+
+5. In Festis beatæ Mariæ (exceptis iis, quæ propria in illis habentur) Hymni, novem Psalmi, et alia quædam requirenda sunt ex communi ejus Officio, circa finem Breviarii, quod inscribitur: In Festis beatæ Mariæ Virginis per annum.
+
+6. Modus inchoandi Officium, dicendi Invitatorium, Hymnos, Antiphonas et Versus, habetur in principio Psalterii. Cum vero Antiphonæ duplicandæ sunt, dicuntur integræ ante Psalmos, sicut in fine Psalmorum.
+
+7. Modus dicendi Absolutiones et Benedictiones ante Lectiones, legendi et terminandi Lectiones, dicendi Responsoria post Lectiones, ac Responsoria brevia post Capitula, habetur in prima Dominica de Adventu.
+
+8. Quomodo sit inchoandum et terminandum Officium per Horas, habetur in Psalterio: quomodo terminandum per Antiphonas beatæ Mariæ, habetur in fine Completorii.
+
+9. Sed ut hæc omnia facilius habeantur, positæ sunt sequentes Rubricæ de singulis Horis, earumque partibus distincte cognoscendis.
+
+#### XIII De Matutino
+
+1. Ad Matutinum hæc per ordinem regulariter dicuntur, secundum diversitatem Officii, nisi aliter in quibusdam diebus annotetur: **Pater noster, Ave María, Credo,** omnia secreto: deinde clara voce Hebdomadarius dicit, **Dómine lábia mea, etc.,** pollice signando sibi os signo Crucis, **Deus in adjutórium, etc.,** manu extensa signando se signo Crucis a fronte ad pectus, et a sinistro humero usque ad dexterum (quod servatur in principio omnium Horarum, cum dicitur, **Deus in adjutórium** cum **Glória Patri** et aliis, ut in principio Psalterii. Deinde dicitur Invitatorium conveniens Officio de Tempore, vel de Sancto, quod dicitur cum Psalmo **Veníte exsultémus,** eo modo quo in principio Psalterii describitur. Dicto Psalmo, et repetito Invitatorio, dicitur Hymnus, qui Officio de Tempore, vel de Sancto, convenit.
+
+2. Postea in Duplicibus et Semiduplicibus dicuntur novem Psalmi (sed in Dominicis plures, ut in Psalterio) cum suis Antiphonis et Versibus, quæ Tempori, vel Festo conveniunt, et totidem Lectiones cum octo Responsoriis, aliquando cum novem, ut suis locis ponitur, per tres Nocturnos distinctos, hoc modo.
+
+3. In primo Nocturno dicuntur tres Psalmi cum tribus Antiphonis, post singulos Psalmos una Antiphona: sed tempore Paschali, id est, a Dominica in Albis usque ad Pentecosten (præterquam in Officio Ascensionis Domini) tres Psalmi cujusque Nocturni dicuntur sub una Antiphona: et in fine Psalmorum post ultimam Antiphonam cujusque Nocturni dicitur Versus; postea **Pater noster, Et ne nos,** Absolutio, **Exáudi,** Benedictio, **Benedictióne perpétua,** et aliæ ad singulas Lectiones, ut in prima Dominica de Adventu ordinantur. Deinde leguntur tres Lectiones de Scriptura, quæ per ordinem in Officio de Tempore occurrunt (nisi aliæ assignentur), et ad singulas Lectiones dicitur unum Responsorium conveniens Officio: si de Tempore, ut in Proprio Temporis: si de Sancto, ut in Proprio Sanctorum; alioquin ut in Communi, etiamsi Lectiones primi Nocturni sint de Scriptura Officii de Tempore.
+
+4. In fine ultimi Responsorii cujusque Nocturni dicitur **Glória Patri,** cum repetitione partis Responsorii, eo modo quo notatur in tertio Responsorio primæ Dominicæ de Adventu, nisi aliter in propriis locis signetur.
+
+5. In secundo Nocturno dicuntur alii tres Psalmi, Antiphonæ, Versus, **Pater noster,** Absolutio, **Ipsius pietas,** et ei consequentes Benedictiones, ut in dicta Dominica prima de Adventu: tres Lectiones de aliquo Sermone, aut de vita illius Sancti, de quo fit Officium, et ad quamlibet Lectionem unum Responsorium.
+
+6. In tertio Nocturno alii tres Psalmi cum Antiphonis, ut supra: post tertiam Antiphonam, Versus, **Pater noster,** Absolutio, **A vínculis,** et Benedictiones consequentes ad singulas Lectiones, quæ erunt de Homilia Evangelii de Tempore, vel de Festo, secundum qualitatem Officii, ut in eadem prima Dominica de Adventu ponuntur. Post septimam et octavam Lectionem dicitur Responsorium Officio conveniens, id est, post quamlibet unum: aliquando autem dicitur etiam post nonam Lectionem, ut suis locis notatur: et in fine ultimi Responsorii, aut octavi, aut noni dicitur **Glória Patri,** ut supra, nisi aliter signetur. Si non dicitur nonum Responsorium, post ultimam Lectionem dicitur Hymnus **Te Deum.**
+
+7. In Officio trium Lectionum ad Matutinum. **Pater noster, Ave María, Credo, Dómine lábia; etc.** Invitatorium, et Hymnus in feriali Officio de Feria, si non sint in Proprio de Tempore, dicuntur ut in Psalterio; in Festis, de Festo, ut in Communi Sanctorum: deinde Nocturnum Feriæ, ut in Psalterio, id est, duodecim Psalmi cum sex Antiphonis, et tempore Paschali cum una Antiphona **Allelúja** qui dicuntur tam in Officio feriali, quam in Festis Simplicibus.
+
+8. Post Psalmos et Antiphonas dicitur Versus, in feriali Officio, ut in Psalterio: in Festis, ut in Communi Sanctorum: qui in Festis sumitur secundum Ferias ex Nocturno Communis, unde sumuntur Responsoria, ut dicetur infra in Rubricis de Versibus et Responsoriis. Post Versum dicitur **Pater noster.** Absolutio et Benedictiones, ut habetur infra in Rubrica de Absolutionibus et Benedictionibus. Tres Lectiones (si non adsit Homilia) singulæ in Officio feriali dicuntur de Scriptura, quæ eo die occurrit in Proprio de Tempore: si adsit Homilia, singulæ tres de Homilia. In Festis, prima et secunda de eadem Scriptura, tertia de Sancto. Si fuerint duæ Lectiones de Sancto, prima tantum erit de Scriptura, reliquæ de Sancto.
+
+9. Post singulas Lectiones in Feriis extra tempus Paschale dicitur unum Responsorium, ita ut dicantur tria Responsoria: tempore vero Paschali, et in Festis, duo tantum Responsoria dicuntur, scilicet post primam et secundam Lectionem tantum. In fine ultimi Responsorii, secundi scilicet, aut tertii, dicitur **Glória Patri,** cum repetitione partis Responsorii, nisi aliud notetur. Quæ Responsoria in Officio de Sanctis sumuntur ex Communi Sanctorum: in feriali Officio ex Dominicis, quando propria per Ferias non distribuuntur, ordine descripto in Rubrica de Responsoriis. Quando non dicitur tertium Responsorium, post tertiam Lectionem, dicitur Hymnus **Te Deum.**
+
+#### XIV De Laudibus
+
+1. Ad Laudes dicto Hymno **Te Deum,** vel ultimo Responsorio, Hebdomadarius absolute dicit **Deus in adjutórium, etc.,** ut supra, et dicuntur Psalmi, et Canticum **Benedícite,** vel aliud, ut habetur in feriali Officio, extra tempus Paschale, cum Antiphonis Officio convenientibus. Qui Psalmi et Canticum in Dominicis per annum (exceptis Dominicis a Septuagesima usque ad Dominicam Palmarum inclusive) et in feriali Officio temporis Paschalis, ac in Festis tam novem, quam trium Lectionum, dicuntur de Dominica, ut in Psalterio. In prædictis vero Dominicis a Septuagesima usque ad Dominicam Palmarum inclusive, dicuntur ut suis locis ponitur. In feriali Officio per annum, extra tempus Paschale, dicuntur ut in Psalterio.
+
+2. Antiphonæ in Dominicis, quando propriæ non assignantur, dicuntur ut in Psalterio. In Festis novem et trium Lectionum, si non adsint propriæ, dicuntur de Communi. Post Psalmos dicitur Capitulum, Hymnus, Versus, Antiphona ad Canticum **Benedíctus,** cum eodem Cantico, et Oratio: omnia pro qualitate Officii de Tempore, vel de Festo.
+
+3. Preces, quando dicendæ sunt, dicuntur ante primam Orationem. Commemorationes vero de Cruce, de sancta Maria, de sancto Joseph, de Apostolis, de Patrono et de Pace, similiter quando dicendæ sunt, dicuntur post Orationem, nisi alia Commemoratio Festi Simplicis vel ad instar Simplicis occurrat, quæ semper prædictas Commemorationes præcedit, de quibus in propriis Rubricis dicitur.
+
+4. Ante Orationem dicitur **Dóminus vobíscum** et **Orémus:** post ultimam Orationem repetitur **Dóminus vobíscum;** deinde, **Benedicámus Dómino,** et ℣. **Fidélium ánimæ, Pater noster, Dóminus det nobis suam pacem,** et Antiphona beatæ Mariæ, ut habetur in fine Completorii, si tunc discedendum sit a Choro: alioquin in fine ultimæ Horæ, nisi sequatur Missa, vel Officium Defunctorum, vel Psalmi Pœnitentiales, aut Litaniæ, ut in propria Rubrica dicetur.
+
+#### XV De Prima
+
+1. Ad Primam, **Pater noster, Ave María, Credo,** secreto: **Deus in adjutórium, etc.,** Hymnus **Jam lucis orto sídere:** deinde inchoatur Antiphona, quæ convenit. Sumuntur autem Antiphonæ in Festis ad omnes Horas ex Laudibus per ordinem, quarta prætermissa, ut dicetur infra in Rubrica de Antiphonis. Postea dicuntur Psalmi, qui in Dominicis et Feriis dicuntur ut in Psalterio. In Festis autem, et tempore Paschali, tres tantum, ut etiam ibi adnotatur.
+
+2. Post Antiphonam dicitur Capitulum **Regi sæculórum.** In feriali Officio extra tempus Paschale dicitur Capitulum **Pacem,** deinde Responsorium breve **Christe Fili Dei vivi, etc.** Post Responsorium breve in Officio Duplici, et infra Octavas, statim dicitur Oratio **Dómine Deus omnípotens.** In alio Officio dicitur **Kýrie eléison** cum reliquis Precibus: omnia ut in Psalterio. Ad Versum autem **Adjutórium.** Hebdomadarius signat se signo Crucis a fronte ad pectus. Quando aliquis solus recitat Officium, semel tantum dicit **Confíteor,** omissis illis verbis, **tibi pater,** vel **vobis fratres,** et **te pater,** vel **vos fratres,** et similiter dicit **Misereátur nostri... peccátis nostris, perdúcat nos,** quod etiam servatur ad Completorium. In feriali Officio, quando dictæ sunt Preces ad Laudes, adduntur aliæ Preces, ut ibidem in Psalterio.
+
+3. Post Orationem Primæ, vel si dicatur Officium beatæ Mariæ, post illius Orationem, dicto **Benedicámus,** in Choro legitur Martyrologium: deinde dicitur **Pretiósa** cum reliquis: quæ etiam dicantur ab iis, qui extra Chorum non legerint Martyrologium. In fine ad Absolutionem Capituli, in Festis et aliquibus diebus, pro Lectione brevi dicitur Capitulum Nonæ, si adsit proprium, alioquin de Communi: alio tempore, tam in Dominicis, quam Feriis, Lectio brevis Officio illius temporis in Psalterio assignata.
+
+#### XVI De Horis Tertia, Sexta et Nona
+
+1. Ad Tertiam, Sextam, et Nonam, ante singulas Horas dicitur **Pater noster, Ave María, Deus, in adjutórium,** Hymnus, et Psalmi, ut in Psalterio: Antiphonæ secundum Officii qualitatem, ordine quo supra. Dictis Psalmis et Antiphona, dicitur Capitulum et Responsorium breve pro qualitate Officii: quæ in Dominicis, et Feriis, quando non habentur propria in Proprio de Tempore, dicuntur ut in Psalterio: in Festis, si in Proprio Sanctorum non sint propria, sumuntur de Communi. Post Responsorium breve dicitur **Dóminus vobíscum,** et Oratio, quæ habetur in Proprio de Tempore: si autem fit de Sancto, ut in Proprio Sanctorum: alioquin ut in Communi.
+
+2. Post Orationem repetitur **Dóminus vobíscum,** et dicitur **Benedicámus Dómino, Fidélium ánimæ,** et **Pater noster,** secreto, ut infra in Rubrica de Oratione Dominica explicatur.
+
+#### XVII De Vesperis
+
+1. Ad Vesperas, **Pater noster, Ave María, Deus in adjutórium, etc.** Deinde dicuntur quinque Psalmi cum quinque Antiphonis, ut in Proprio, aut Communi Sanctorum signantur. In Dominicis autem, et Feriis, Antiphonæ et Psalmi semper dicuntur ut in Psalterio (ubi etiam tempore Paschali Psalmi dicuntur sub una Antiph. **Allelúja**) nisi aliæ propriæ Antiphonæ vel Psalmi (ut in Dominicis Adventus, et triduo ante Pascha) assignentur.
+
+2. Post Psalmos et Antiphonas dicitur Capitulum, Hymnus, Versus, Antiphona ad **Magníficat** cum eodem Cantico, et Oratio; omnia de Tempore, vel de Sancto, pro qualitate Officii.
+
+3. Preces, quando dicendæ sunt, dicuntur ante Orationem; Commemorationes vero de Cruce, S. Maria, S. Joseph, Apostolis, Patrono, et Pace, post Orationem, ut in propriis Rubricis habetur. Terminatur autem Officium Vesperarum ut in aliis Horis.
+
+#### XVIII De Completorio
+
+1. Ad Completorium absolute dicitur Lectio brevis, ut in Psalterio: deinde **Pater noster, Confíteor, Misereátur, Indulgéntiam, Convérte, Deus in adjutórium,** Antiphona, Psalmi, Hymnus, Capitulum, Responsorium breve, Canticum cum Antiphona; omnia ut in fine Psalterii; et post Antiphonam in Duplicibus et infra Octavas dicitur Oratio; in alio autem Officio ante Orationem dicitur **Kýrie eléison,** cum reliquis precibus, ut ibidem in Psalterio.
+
+2. Post Versum **Benedícat et custódiat nos, etc.** dicitur una ex Antiphonis beatæ Mariæ, cum Versiculo et Oratione, ut ibidem: et dicto Versu, **Divínum auxílium,** dicitur secreto **Pater noster, Ave María,** et **Credo.**
+
+#### XIX De Invitatorio
+
+1. Invitatorium semper dicitur in omni Officio ad Matutinum cum Psalmo **Veníte exsultémus,** ordine in principio Psalterii descripto: sed variatur pro Officii qualitate, ut in Psalterio, et Proprio de Tempore, ac in Proprio, et Communi Sanctorum.
+
+2. Non dicitur in die Epiphaniæ, nec in triduo ante Pascha, ut suis locis notatur, nec in Officio Defunctorum per annum, excepto die Commemorationis omnium Fidelium defunctorum, ac in die obitus seu depositionis Defuncti, et quandocumque dicuntur tres Nocturni.
+
+#### XX De Hymnis
+
+1. Hymni semper dicuntur in qualibet Hora, præterquam a triduo ante Pascha, usque ad Vesperas Sabbati in Albis exclusive, et præterquam in Officio Defunctorum.
+
+2. Ad Matutinum Hymnus dicitur post Psalmum **Veníte,** repetito Invitatorio, præterquam in die Epiphaniæ. Ad Laudes et Vesperas dicitur post Capitulum: ad Horas ante Psalmos, ad Completorium post Psalmos et Antiphonam.
+
+3. Dicuntur autem in Officio de Tempore ut in Psalterio, quando proprii Hymni in Proprio de Tempore non adsunt: qui Hymni de Psalterio in Dominicis et Feriis assignati dicuntur ab Octava Pentecostes usque ad Adventum (Dominica infra Octavam Corporis Christi excepta), et ab Octava Epiphaniæ usque ad Dominicam primam Quadragesimæ exclusive. In Officio de Sanctis dicuntur ut in Communi Sanctorum, nisi proprii in Proprio Sanctorum habeantur. Quando in aliquo Festo adsint tres Hymni proprii historici ejusdem metri, et Hymnus proprius in primis Vesperis dici nequeat, tunc hic hymnus dicitur ad Matutinum, Hymnus Matutini ad Laudes, ac Hymnus Laudum ad secundas Vesperas; si vero secundæ Vesperæ non sint de hoc Festo, tunc Hymnus Vesperarum conjungitur cum Hymno Matutini sub unica conclusione.
+
+4. In Nativitate Domini usque ad Epiphaniam, in Festo Corporis Christi et per Octavam, et quandocumque fit Officium beatæ Mariæ tam novem, quam trium Lectionum, etiam tempore Paschali, in fine omnium Hymnorum (præterquam in fine Hymni **Ave maris stella** et Hymni ad Laudes in Festo Corporis Christi, atque Hymnorum in Festo Septem Dolorum beatæ Mariæ Virginis mense Septembri, qui habent ultimum versum proprium) dicitur: **Jesu, tibi sit glória, Qui natus es de Vírgine, etc.** ut in ejus Officio per annum, etiamsi dicantur Hymni de Sanctis, qui infra Octavas prædictas celebrantur, dummodo Hymni illi sint ejusdem metri, nec habeant ultimum Versum proprium ut Hymnus Sanctæ Crucis ad Vesperas, et plurimorum Martyrum ad Matutinum.
+
+5. In Epiphania Domini, et per Octavam, in fine omnium Hymnorum dicitur **Jesu, tibi sit glória, Qui apparuísti Géntibus.**
+
+6. A Dominica in Albis usque ad Ascensionem, in Pentecoste, et per Octavam, in fine omnium Hymnorum dicitur **Deo Patri sit glória, Et Fílio qui a mórtuis;** etiam in Festis Sanctorum eodem tempore Paschali occurrentium; dummodo Hymni sint ejusdem metri, nec habeant ultimum versum proprium, qui non mutatur, ut supra.
+
+7. In Ascensione autem usque ad Pentecosten (præterquam in Hymno **Salútis humánæ Sator**) dicitur **Jesu, tibi sit glória, Qui victor in cælum redis:** similiter etiam in Festis tunc occurrentibus.
+
+8. In Transfiguratione Domini dicitur **Jesu, tibi sit glória, Qui te revélas párvulis.** Aliis temporibus terminantur Hymni, ut suis locis ponitur.
+
+#### XXI De Antiphonis
+
+1. Ad omnes Horas nocturnas et diurnas semper cum Psalmis dicuntur Antiphonæ, vel una, vel plures, pro diversitate Officii, et Horarum.
+
+2. Si de Tempore fiat Officium, id est, de Dominica, aut Feria, dicuntur Antiphonæ ut in Psalterio, quæ cum Psalmis positæ in Vesperis Dominicæ et Feriarum, in Completorio, et in Nocturnis (etiam quando fit Officium de Festo trium Lectionum, id est, Simplici) numquam mutantur, nisi tempore Paschali, in quo dicitur una tantum Antiphona **Allelúja;** excepto etiam tempore Adventus, in quo ad Vesperas, et Nocturnos Dominicæ ponuntur Antiphonæ propriæ. In Laudibus, et aliis Horis mutantur pro diversitate temporum, ut in Proprio de Tempore habentur: cum vero non assignantur propriæ, semper dicuntur quæ positæ sunt in Psalterio.
+
+3. Antiphonæ, quæ in Proprio de Tempore pro Sabbatis ponuntur ad **Magníficat** pro prima Dominica alicujus mensis, sumendæ sunt ex ea Dominica, quæ est proximior Kalendis, vel est in Kalendis illius mensis; ut dictum est supra in Rubrica de Dominicis, ac etiam in Rubrica mensis Augusti; et semper in Sabbato ponitur Antiphona ad **Magníficat,** quæ contigua est libro Scripturæ in Dominica ponendo.
+
+4. In Festis novem Lectionum ad Vesperas dicuntur Antiphonæ de Laudibus, nisi propriæ in Vesperis assignentur. Ad Horas similiter, tam in Officio de Tempore, quam de Sanctis, quando habentur propriæ in Laudibus, et aliæ propriæ non fuerint ad Horas, sumuntur ex Laudibus, quarta prætermissa, hoc ordine: Ad Primam, prima; ad Tertiam, secunda; ad Sextam, tertia; ad Nonam, quinta.
+
+5. In Feriis Adventus, quæ non habent in Laudibus Antiphonas proprias, sumuntur ad Horas ex Laudibus Dominicæ præcedentis. Ubi vero in Laudibus Feriarum fuerint propriæ, sumuntur ex ipsis Laudibus.
+
+6. Tempore Paschali, in Officio tam novem, quam trium Lectionum, Psalmi cujuslibet Nocturni dicuntur sub unica Antiphona, quæ Officio convenit, ut suis locis ponitur: et in fine omnium Antiphonarum additur **Allelúja** quando in illis non habetur. A Septuagesima usque ad Pascha, ubi habetur **Allelúja,** tacetur; neque aliud ejus loco dicitur.
+
+7. In Duplicibus ad Vesperas, Matutinum et Laudes tantum, Antiphonæ dicuntur ante Psalmos vel Cantica integræ, et post Psalmos vel Cantica integræ repetuntur: in aliis Horis, et in Officio non Duplici, in principio Psalmi vel Cantici, inchoatur tantum Antiphona, deinde in fine integra dicitur. Et quando Antiphona sumitur ex principio Psalmi vel Cantici, et incipit sicut Psalmus vel Canticum, post Antiphonam non repetitur principium Psalmi vel Cantici; sed continuatur quod sequitur in Psalmo vel Cantico, ab eo loco, ubi secundum ritum diei desinit Antiphona, nisi discontinuetur per **Allelúja.**
+
+8. Antiphonis propriis, tam in Officio de Tempore, quam de Sanctis, semper cedunt quæ habentur in Psalterio, et in Communi Sanctorum.
+
+9. Quando fit aliqua Commemoratio semper dicitur Antiphona ante Orationem cum Versu, quæ sumitur ex Officio, quod convenit ei, de quo fit Commemoratio; ita ut in Vesperis sumatur Antiphona, quæ assignatur ad **Magníficat;** in Laudibus, quæ ad **Benedíctus,** cum Versibus qui habentur post Hymnum.
+
+10. Antiphonæ sanctæ Mariæ positæ in fine Completorii, dicuntur ut inferius in propria Rubrica disponitur.
+
+#### XXII De Psalmis
+
+1. Psalmi in Officio de Tempore per omnes Horas in Dominicis, et Feriis dicuntur eo modo, quo distributi sunt in Psalterio: nisi aliquando aliter in Proprio de Tempore signetur. In Festis autem dicuntur, ut in propriis locis signantur: alioquin, ut in Communi Sanctorum.
+
+2. Psalmi ad Laudes de Dominica, cum Cantico **Benedícite** dicuntur in omnibus Festis per annum, et in Feriis temporis Paschalis.
+
+3. Psalmus **Confitémini** dicitur ad Primam cum aliis Psalmis in Psalterio assignatis, in omnibus Dominicis (quando Officium fit de Dominica, ut in Psalterio, etiam in Dominicis, quæ occurrunt infra Octavas Sanctorum) a tertia Dominica post Pentecosten inclusive, usque ad Nativitatem Domini exclusive: et a secunda Dominica post Epiphaniam inclusive, usque ad Septuagesimam exclusive: a Septuagesima autem usque ad Pascha, ejus loco dicitur Psalmus **Dóminus regnávit** quia Psalmus **Confitémini** tunc dicitur ad Laudes post Psalmum **Miserére,** ut suo loco ponitur. In Dominicis vero temporis Paschalis, a Dominica in Albis inclusive, usque ad Ascensionem exclusive, dicuntur tantum tres Psalmi sicut in Festis, addito Symbolo sancti Athanasii. Alii Psalmi per singulas Ferias distributi ad Primam, dicuntur singuli loco Psalmi **Confitémini** in feriali tantum Officio, quando de Feria agitur extra tempus Paschale. In Feriis vero temporis Paschalis, in Festis per annum, et in Sabbato, sive de sancta Maria, sive de Feria fiat Officium, dicuntur tantum tres Psalmi, scilicet: **Deus in nómine tuo, Beáti immaculáti,** et **Retríbue;** etiam si Festum Duplex celebretur in Dominica.
+
+4. In Dominicis autem, quando Officium fit de Dominica ut in Psalterio, post Psalmos additur semper Symbolum sancti Athanasii **Quicúmque,** ut infra in propria Rubrica dicitur.
+
+5. Psalmi Horarum, scilicet ad Tertiam, Sextam, et Nonam, et ad Completorium, numquam mutantur, ut in Psalterio, sive de Sanctis, sive de Tempore fiat Officium.
+
+6. Psalmi de Dominica ad Vesperas, ut plurimum dicuntur in Vesperis Festorum, excepto ultimo, qui mutatur: cum vero aliter fieri debet, suis locis notatur. In Vesperis infra Octavam dicuntur Psalmi ut in secundis Vesperis Festi: sed in primis Vesperis diei Octavæ dicuntur ut in primis Vesperis Festi, nisi aliter notetur.
+
+7. In fine Psalmorum semper dicitur **Glória Patri,** præterquam in Psalmo **Deus, Deus meus ad te de luce vígilo,** et in Psalmo **Laudáte Dóminum de cælis,** qui conjunguntur cum aliis Psalmis, et in fine ultimi tantum dicitur **Glória Patri,** ut suis locis notatur. Præterea non dicitur in triduo majoris Hebdomadæ ante Pascha, nec in Officio Defunctorum, cujus loco pro Defunctis dicitur **Réquiemætérnam dona eis, Dómine** etiamsi fiat Officium pro uno tantum.
+
+8. Ut sacræ Vulgatæ editionis puritas inconfusa et illibata servetur, etiam quoad interpunctiones et distinctiones in sacris Bibliis appositas, additus est Asteriscus, \* ut sit nota musicæ partitionis in medio Versu.
+
+#### XXIII De Canticis
+
+1. Cantica dicuntur in Officio de Tempore, tam de Dominicis, quam Feriis, ad Laudes, Vesperas et Completorium, ut in Psalterio distribuuntur.
+
+2. In Festis, et tempore Paschali ad Laudes semper dicitur Canticum **Benedícite,** ut in Dominica; et in fine ejus non dicitur **Glória Patri,** sicut in aliis Canticis dicitur, nec respondetur **Amen.** Alia Cantica ferialia ut in Psalterio, ad Laudes non dicuntur, nisi quando fit Officium de Feria extra tempus Paschale.
+
+3. Canticum **Benedíctus, Magníficat,** et **Nunc dimíttis,** semper dicuntur suo loco, ut in Psalterio.
+
+#### XXIV De Versibus
+
+1. Versus semper dicuntur ad Matutinum post ultimum Psalmum et Antiphonam Nocturnorum: sive in Officio dicantur tres Nocturni, sive unus. Ad Laudes et Vesperas Versus dicitur post Hymnum: ad Horas dicitur in Responsorio brevi, post repetitionem partis Responsorii, dicto **Glória Patri.**
+
+2. In Pascha Resurrectionis et per Octavam usque ad Vesperas Sabbati in Albis exclusive, in Nocturno tantum dicitur Versus, in aliis Horis non dicitur, ut ibidem.
+
+3. Quando fit aliqua Commemoratio, semper post Antiphonam ejus, de quo fit Commemoratio, dicitur Versus, qui in ejus Officio ponitur post Hymnum Vesperarum et Laudum, nisi aliter notetur.
+
+4. Versibus prædictis, tempore Paschali, semper additur **Allelúja:** non autem Versibus Precum, nec in **Pretiósa** ad Primam, neque in Versibus Responsoriorum Matutini.
+
+5. In Officio Festi trium Lectionum post omnes Psalmos feriales cum Antiphonis dicitur Versus de Communi Sanctorum, hoc ordine: Feria secunda et quinta, Versus primi Nocturni: Feria tertia et sexta, Versus secundi Nocturni: Feria quarta, Versus tertii Nocturni.
+
+6. Versus positi in Psalterio ad Laudes et Vesperas semper dicuntur, quando alii proprii non assignantur in Proprio de Tempore.
+
+#### XXV De Absolutionibus et Benedictionibus ante Lectiones
+
+1. Absolutiones et Benedictiones dicuntur per ordinem in Officio novem Lectionum ante Lectiones, ut in prima Dominica de Adventu ponuntur, scilicet, post Versum, dicto **Pater noster, Et ne nos,** dicitur Absolutio, et Benedictiones, ut ibi: præterquam in Matutinis Tenebrarum majoris Hebdomadæ, et in Officio Defunctorum, in quibus Absolutio et Benedictiones non dicuntur.
+
+2. Si fiat Officium trium Lectionum, et sit de Feria, in qua singulæ tres Lectiones sunt de Scriptura, Absolutio et Benedictiones sumuntur ex prima Dominica de Adventu, hoc ordine: Feria secunda et quinta dicuntur Absolutio et Benedictiones primi Nocturni: Feria tertia et sexta, secundi Nocturni: Feria quarta et Sabbato, tertii Nocturni.
+
+3. Si autem singulæ tres Lectiones sint de Homilia super Evangelium, Absolutio dicitur secundum Ferias, ut supra: Benedictiones vero semper dicuntur ut in tertio Nocturno, scilicet: prima Benedictio erit **Evangélica léctio:** secunda, **Divínum auxílium:** tertia, **Ad societátem.** Si fit de Sancto trium Lectionum, Absolutio dicitur secundum Ferias, ut supra: Benedictiones vero semper dicuntur ut in tertio Nocturno, hoc modo: prima, **Ille nos benedícat:** secunda, **Cujus,** vel **Quorum** vel **Quarum Festum cólimus:** tertia, **Ad societátem.**
+
+4. Quando fit Officium sanctæ Mariæ in Sabbato, Absolutio et Benedictiones dicuntur, ut habentur in ejus Officio parvo circa finem Breviarii.
+
+#### XXVI De Lectionibus
+
+1. Lectiones leguntur ad Matutinum, dictis Psalmis Nocturnorum cum Antiphonis, Versibus, Absolutionibus quoque, et Benedictionibus, ut supra. In Duplicibus et Semiduplicibus dicuntur novem Lectiones, id est, in quolibet Nocturno tres: in Feriis, et in Festis Simplicibus leguntur tantum tres Lectiones.
+
+2. In Officio novem Lectionum dicuntur hoc modo. In primo Nocturno semper leguntur tres Lectiones de Scriptura: quæ, quando suis locis propriæ, aut de Communi Sanctorum non assignantur, semper leguntur ut in Officio de Tempore; quæ sua quaque die occurrunt legendæ. In secundo Nocturno, si fit de Sancto, tres Lectiones leguntur de vita Sancti, vel de aliquo Sermone, aut Tractatu, qui ei convenit: quæ, si non adsint propriæ, leguntur ex Communi Sanctorum. Ex quo etiam Communi completur numerus trium Lectionum, quando Officium fit novem Lectionum de aliquo Sancto, qui habet tantum unam vel duas Lectiones proprias. Si fit de Dominica, vel de alio Officio novem Lectionum per annum, etiam de Octava, leguntur tres Lectiones de Sermone, aut Tractatu, qui in illis ponitur. In tertio Nocturno semper leguntur tres Lectiones de Homilia in Evangelium, positæ in Proprio, aut ex Communi assignatæ: et primæ Lectioni de Homilia semper præponitur principium Evangelii, de quo est Homilia, etiam infra Octavas. Excipiuntur ab hoc ordinario Lectionum Matutina Tenebrarum ante Pascha, et Defunctorum, ut in suis Officiis ponitur.
+
+3. Si in Officio novem Lectionum, in quo non dicitur nonum Responsorium, contingat fieri Commemorationem de aliquo Sancto, qui propriam habet Lectionem, nona Lectio legitur de Sancto: si habuerit duas Lectiones, ex duabus fiat una Lectio, omissa nona Lectione in dicto Officio novem Lectionum vel octavæ Lectioni adjuncta. Item de Festo Duplici aut Semiduplici, si fiat tamquam Simplex, legitur nona Lectio composita ex omnibus Sancti Lectionibus historicis secundi Nocturni, ut supra dictum est in Rubrica de Commemorationibus, num. 10. Quod si eodem die occurrat Dominica, vel Feria quæ habeat Homiliam, nona Lectio Sancti omittitur, et ejus loco legitur Homilia Dominicæ, vel Feriæ; scilicet vel prima Lectio de Homilia, vel tres simul in unam Lectionem conjunctæ. Similiter si plures occurrant nonæ Lectiones de Scriptura, nisi tres sint de Homilia, quia tunc omissis Lectionibus de Scriptura, leguntur de Homilia. Si fit de Sancto, qui habeat duas Lectiones, prima tantum erit de Scriptura, ut vel legatur una, vel ex tribus simul junctis fiat una; secunda et tertia de Sancto. Si unam tantum habuerit, vel propriam, vel ex communi assignatam, prima et secunda erunt de Scriptura, tertia de Sancto: quod etiam servatur in Officio beatæ Mariæ in Sabbato.
+
+4. In Officio trium Lectionum, si fit de Feria, tres Lectiones leguntur de Scriptura, nisi tres sint de Homilia, quia tunc omissis Lectionibus de Scriptura, leguntur de Homilia. Si fit de Sancto, qui habeat duas Lectiones, prima tantum erit de Scriptura, ut vel legatur una, vel ex tribus simul junctis fiat una; secunda et tertia de Sancto. Si unam tantum habuerit, vel propriam, vel ex communi assignatam, prima et secunda erunt de Scriptura, tertia de Sancto: quod etiam servatur in Officio beatæ Mariæ in Sabbato.
+
+5. Lectiones autem de Scriptura in Officio de Tempore sic distributæ sunt per annum, ut quotidie aliquid ex ea legatur, etiam in Officio de Sanctis, quando aliæ (ut dictum est) non assignantur.
+
+6. Initia librorum sacræ Scripturæ (qui fere semper in Dominicis inchoantur) eo die ponuntur, quo notata sunt, etiamsi fiat Officium de Sancto, nisi in Festo aliæ propriæ Lectiones de Scriptura, vel de Communi assignentur: tunc enim initium Lectionis de Scriptura transfertur in sequentem diem similiter non impeditam; et Lectiones illi diei de eadem Scriptura assignatæ vel cum superioribus Lectionibus legantur, vel omittantur: ita ut non oporteat eas amplius in alio sequenti die resumere, sed illæ legantur, quæ non quaque die occurrunt, aut cum eisdem jungantur. Quod semper servetur, quando Lectiones occurrentes de Scriptura aliquo die omittuntur.
+
+7. Cum autem initium alicujus Epistolæ catholicæ tempore Paschali aut alicujus Prophetæ minoris mense Novembri, infra Hebdomadam illorum temporum impeditur aliquo Festo novem Lectionum habente proprias Lectiones de Scriptura, dictum initium Epistolæ et Prophetæ, quoad commode fieri poterit, ponatur in sequenti Feria, alio simili initio Scripturæ ponendo, vel Festo non impedita; alioquin in præcedenti similiter non impedita, ita ut aliquo modo ponatur, etiamsi plura initia eodem die poni oporteat.
+
+8. De Scriptura quoque tantum est positum, quantum satis videtur pro numero Hebdomadarum, quæ esse possunt inter Epiphaniam et Septuagesimam, et inter Pentecosten et Adventum. Ubi vero contingit minui numerum Dominicarum et Hebdomadarum post Epiphaniam, adveniente Dominica Septuagesimæ, quod superest de Epistolis beati Pauli, quæ distributæ sunt pro numero dictarum Dominicarum et Hebdomadarum, eo anno omittitur, quamvis de aliquibus Epistolis nihil sit lectum. Quod etiam fit de Scriptura ex libris Regum (de quibus legitur ab Octava Pentecostes usque ad Dominicam primam Augusti), cum non expletur numerus Dominicarum post Pentecosten de eis libris annotatus usque ad mensem Augusti: quia tunc, Lectionibus de his libris omissis, legitur de Scriptura, quæ ponitur mense Augusti. Quod si fiat de aliqua Dominica post Epiphaniam anticipata in Feria, eo modo quo dictum est de Dominicis num. 4 et 5, tunc post Officium Dominicæ anticipatæ, in sequentibus diebus legatur de Epistolis sancti Pauli assignatis Dominicæ anticipatæ, et sequentibus Feriis, omissis aliis, quæ sunt assignatæ præcedenti Hebdomadæ.
+
+Quid autem observandum sit, cum mensis, cui quinque Dominicæ assignantur, non habuerit nisi quatuor, in propriis locis notatur.
+
+9. Lectiones de Scriptura positæ in Communi Sanctorum leguntur in Festis, ubi assignantur in Proprio Sanctorum per annum. Rursus, quando aliquod Festum in propria Ecclesia solemniter celebratur: item, quando aliquod Festum novem Lectionum occurrit in Quadragesima, et Quatuor Temporibus, in secunda Feria Rogationum, et in Vigilia Ascensionis, in quibus Feriis in Officio de Tempore non assignantur Lectiones de Scriptura, sed de Homilia; tunc enim in Festis recurrendum est ad Lectiones de Scriptura positas in Communi Sanctorum. Quod si in aliquibus ex supradictis Feriis occurrat dies Octava alicujus Festi habentis Octavam, tunc in primo Nocturno diei Octavæ repetantur Lectiones, quæ in primo Nocturno Festi lectæ fuerint: si vero occurrat dies infra Octavam, tunc sumantur de Communi. Aliæ Lectiones secundi et tertii Nocturni positæ in Communi Sanctorum similiter leguntur, quando in Proprio Sanctorum assignantur, et quando in aliqua Ecclesia aliquod Festum celebratur cum novem Lectionibus (quia in ea est solemne, aut consuetum in ea celebrari), quod proprias et approbatas de Festo Lectiones non habuerit.
+
+10. Lectiones primi Nocturni leguntur cum titulo libri, ex quo sumuntur, nisi aliter in propriis locis notetur. Lectiones etiam secundi Nocturni, quando sunt ex aliquo Sermone vel Tractatu, leguntur cum titulo et nomine Auctoris; alias minime. Et similiter in tertio Nocturno præponitur titulus auctoris cujus est Homilia.
+
+11. In fine cujusque Lectionis dicitur **Tu autem Dómine miserére nobis,** et respondetur **Deo grátias.** Quod etiam fit in Lectionibus brevibus in principio Completorii, et in fine Primæ post **Pretiósa** præterquam in triduo majoris Hebdomadæ ante Pascha, et in Officio Defunctorum, ut suis locis ponitur.
+
+#### XXVII De Responsoriis post Lectiones
+
+1. Responsoria dicuntur ad Matutinum post Lectiones: id est, post quamlibet Lectionem dicitur unum Responsorium, ut infra.
+
+2. In Festis novem Lectionum (præterquam in Festo sanctorum Innocentium, quando non venerit in Dominica), et in Dominicis ab Octava Paschæ inclusive usque ad Adventum exclusive, et a Dominica infra Octavam Nativitatis inclusive usque ad Septuagesimam exclusive, dicuntur octo tantum Responsoria; et in fine tertii, sexti, et octavi dicitur **Glória Patri,** cum repetitione partis Responsorii: quod regulare est in fine ultimi Responsorii cujuslibet Nocturni, tam in Officio novem quam trium Lectionum: excepto Tempore Passionis, quo Tempore, loco **Glória Patri,** repetitur Responsorium a principio: excepto etiam Officio Defunctorum, in quo illius loco dicitur **Réquiem ætérnam, etc.** Qui Versus **Glória Patri** quibusdam diebus dicitur in primo Responsorio, ut in propriis locis annotatur. Post nonam Lectionem prædictis diebus, quando octo tantum dicuntur Responsoria, immediate dicitur Hymnus **Te Deum.**
+
+3. In Dominicis Adventus, et in Dominicis a Septuagesima usque ad Dominicam Palmarum inclusive, et in triduo ante Pascha, dicuntur novem Responsoria, quia tunc non dicitur **Te Deum.**
+
+4. In Officio autem trium Lectionum, quando fit de Festo, et in Feriis Temporis Paschalis, quod est inter Dominicam in Albis et Ascensionem (excepta Feria secunda Rogationum, in qua ponitur tertium Responsorium), dicuntur duo Responsoria, quia post tertiam Lectionem dicitur **Te Deum.** Quæ Responsoria in Festis sumuntur de Communi Sanctorum, et in dictis Feriis Temporis Paschalis, quando alia propria non assignantur, sumuntur de Dominica in qua primo sunt posita, hoc ordine: secunda et quinta Feria, primum et secundum Responsorium primi Nocturni: Feria tertia et sexta, primum et secundum Responsorium secundi Nocturni: Feria quarta primum et secundum Responsorium tertii Nocturni.
+
+5. In aliis Feriis extra Tempus Paschale dicuntur tria Responsoria (quia in illis non dicitur **Te Deum**), hoc ordine: Feria secunda et quinta, tria Responsoria primi Nocturni: Feria tertia et sexta, tria Responsoria secundi Nocturni: Feria quarta et Sabbato, quando in eo fit de Feria, tria Responsoria tertii Nocturni Dominicæ præcedentis, in qua primo sunt posita. Verum quia in tertio Nocturno Dominicarum a tertia post Pentecosten inclusive, usque ad Adventum exclusive, non habetur nisi unum Responsorium dicendum infra Hebdomadam, quod est septimum in Dominica (propterea quod Responsorium **Duo Séraphim** non dicitur nisi in prædictis Dominicis); ideo Feria quarta et Sabbato, quando Responsoria sumenda erunt ex tertio Nocturno, primum Responsorium erit quod est septimum Dominicæ: secundo et tertio loco dicitur secundum et tertium sequentis Feriæ, id est, post secundam et tertiam Lectionem dicitur secundum et tertium Responsorium, quod est secundum et tertium secundæ sequentis Feriæ, si propria Responsoria habuerit; alioquin, si non habuerit propria, dicitur secundum et tertium Responsorium primi Nocturni ejusdem Dominicæ. Ab Octava Epiphaniæ usque ad Septuagesimam habentur Responsoria propria in singulis Feriis, excepto Sabbato, in quo, quando fit de Feria, dicuntur Responsoria Feriæ quartæ.
+
+6. Sumuntur autem Responsoria ex eo loco, ubi primo sunt posita in principio mensis, vel libri, et repetuntur in aliis sequentibus Dominicis illius mensis in quibus alia non assignantur, vel donec de illo libro legitur, unde sumpta sunt Responsoria. Quæ autem in prima Hebdomada mensis posita sunt per Ferias, repetuntur eodem ordine in eisdem Feriis per sequentes Hebdomadas, donec alia ponantur. Ubi vero non adsunt propria, semper ex Nocturnis Dominicæ sumuntur dicto ordine.
+
+7. Si Responsoria primi Nocturni ejus Dominicæ, in qua primo ponuntur, propter Festum Duplex in ea occurrens, in ipsa Dominica poni non possint, ponantur prima die ejus Hebdomadæ, in qua occurrit fieri de Feria, et omittantur alia quæ forte in illa Feria propria haberentur. Si vero in tota Hebdomada non occurrat dies in quo fiat de Feria, illa Responsoria ponantur in sequenti Hebdomada, vel Dominica similiter non impedita, et dummodo in ea alia Responsoria non sint primo ponenda; alioquin eo anno omittantur. Responsoria etiam quæ in aliquibus Feriis per Hebdomadam habentur, si eo die quo posita sunt, non possunt dici propter Festum occurrens, non sunt transferenda in aliam diem sed omittuntur.
+
+8. Tempore Paschali, in fine Responsorii, ante Versum, additur **Allelúja.**
+
+#### XXVIII De Responsoriis Brevibus Horarum
+
+1. Responsoria brevia dicuntur post Capitulum ad Primam, Tertiam, Sextam, et Nonam, et ad Completorium, præterquam in triduo ante Pascha usque ad Nonam Sabbati in Albis inclusive, quibus diebus non dicuntur. Ad Primam et Completorium semper dicuntur eodem modo, ut in Psalterio. In aliis Horis, quando fit Officium de Dominica, vel Feria per annum, dicuntur ut habentur in Psalterio. In Adventu autem, Quadragesima, Tempore Passionis et Paschali, ut suis locis habentur propria. In Festis similiter, quando non habentur propria, dicuntur ut in Communi Sanctorum.
+
+2. In fine Responsorii brevis dicitur **Glória Patri,** cum repetitione Responsorii eo modo quo ordinatur ad Primam in Psalterio, præterquam Tempore Passionis: tunc enim non dicitur **Glória Patri** in Officio de Tempore, sed solum repetitur Responsorium breve a principio.
+
+3. In Responsorio brevi ad Primam, loco Versus: **Qui sedes etc.,** in Adventu dicitur: **Qui ventúrus es in mundum,** tam in Dominicis et Feriis, quam in Festis, excepto Festo Immaculatæ Conceptionis beatæ Mariæ et per Octavam. In Nativitate Domini usque ad Epiphaniam, etiam in Festis occurrentibus; in Festo Corporis Christi, et per Octavam, et in omni Officio beatæ Mariæ, tam novem quam trium Lectionum, etiamsi infra ejusdem Octavas fiat de Festo vel de Dominica, dicitur: **Qui natus es de María Vírgine.** In Epiphania, et per Octavam, et in Festo Transfigurationis, dicitur: **Qui apparuísti hódie.** A Dominica in Albis inclusive, usque ad Ascensionem exclusive, tam in Officio de Tempore, quam de Sanctis (excepto Officio beatæ Mariæ) semper dicitur: **Qui surrexísti a mórtuis.** In Ascensione usque ad Pentecosten exclusive dicitur: **Qui scandis super sídera.** In Pentecoste et reliquo anni tempore, tam in Officio de Tempore quam de Sanctis, dicitur: **Qui sedes ad déxteram Patris,** ut in Psalterio. Aliqua præterea sunt propria Officia, veluti Pretiosissimi Sanguinis, et Sacratissimi Cordis D. N. J. C. ac septem Dolorum B. M. V., in quibus proprius versus assignatur, ut suis locis ponitur.
+
+4. Responsoria brevia aliarum Horarum, quæ ponuntur in prima Dominica de Adventu, dicuntur per totum Adventum, quando fit Officium de Tempore. Similiter quæ ponuntur in prima Dominica Quadragesimæ, dicuntur usque ad Dominicam Passionis exclusive. Et quæ ponuntur in Dominica Passionis, dicuntur usque ad Feriam quintam in Cœna Domini exclusive. Item quæ ponuntur in Dominica in Albis, dicuntur usque ad Ascensionem exclusive. Quæ vero ponuntur in aliquo Festo habente Octavam, dicuntur per totam Octavam quando fit de Octava. In Officio autem beatæ Mariæ, tam novem quam trium Lectionum, exceptis Festis quæ habent propria, dicuntur semper Responsoria brevia de Communi Virginum.
+
+5. Tempore Paschali, a Dominica in Octava Paschæ usque ad Sabbatum post Pentecosten inclusive, in fine Responsorii brevis ante primum Versum dicuntur duo **Allelúja,** quæ etiam post dictum primum Versum repetuntur pro parte Responsorii; et in fine secundi Versus unum tantum **Allelúja,** tam in Officio de Tempore quam de Sanctis, ut dicitur in Rubrica quæ est in Sabbato in Albis. Extra tempus Paschale, quamvis in aliquibus Festis ad Tertiam, Sextam et Nonam, Responsoriis brevibus addantur **Allelúja,** non ideo adduntur ad Primam et Completorium.
+
+#### XXIX De Capitulis
+
+1. Capitula semper dicuntur (præterquam a Feria quinta in Cœna Domini, usque ad Vesperas Sabbati in Albis exclusive, et præterquam in Officio Defunctorum) ad Vesperas, Laudes et alias Horas, dictis Psalmis et Antiphonis; ad Completorium vero dicto etiam Hymno.
+
+2. Capitula Dominicalia posita in Psalterio in primis et secundis Vesperis, in Laudibus et Horis, dicuntur a tertia Dominica post Pentecosten usque ad Adventum, et a secunda post Epiphaniam usque ad Septuagesimam. Capitula autem ferialia dicuntur post Octavam Pentecostes usque ad Adventum, et ab Octava Epiphaniæ usque ad Dominicam primam Quadragesimæ. Aliis temporibus dicuntur ut in Proprio de Tempore: si fit de Sanctis, ut in Proprio de Sanctis cum propria adsunt; alioquin de Communi Sanctorum. Capitulum Primæ et Completorii (quando Capitula dicuntur) numquam mutatur, ut in Psalterio.
+
+3. In Dominicis ab Adventu usque ad Octavam Epiphaniæ, et a Septuagesima usque ad tertiam post Pentecosten, et in Feriis temporis Paschalis, et in omnibus Festis regulariter, Capitulum positum in primis Vesperis dicitur in Laudibus, ad Tertiam, et in secundis Vesperis, quibusdam exceptis, quæ suis locis assignantur.
+
+4. In Feriis tempore Paschali ad Primam dicitur Capitulum **Regi sæculórum,** sicut in Dominicis et in Festis. Post Capitulum semper respondetur **Deo grátias.**
+
+#### XXX De Oratione
+
+1. Oratio in Vesperis et Laudibus dicitur post Antiphonas ad **Magníficat** et **Benedíctus** immediate, nisi quando dicendæ sunt Preces, quæ dicuntur post Antiphonam, et in fine illarum Oratio. Ad Primam et alias Horas Oratio dicitur post Responsorium breve, nisi dicendæ sint Preces: tunc enim Oratio dicitur post Preces. Ad Completorium Oratio dicitur post Antiphonam **Salva nos,** nisi dicendæ sint Preces: et tunc dicitur post illas.
+
+2. Ad Primam et Completorium numquam mutantur Orationes, quæ habentur in Psalterio, præterquam in triduo ante Pascha, in quo triduo ad omnes Horas usque ad Nonam Sabbati sancti inclusive post Psalmum **Miserére,** dicitur Oratio diei, ut suo loco ponitur. In aliis Horis regulariter dicitur Oratio quæ dicta est in primis Vesperis. In Quadragesima autem, Quatuor Temporibus, Vigiliis, et Feria secunda Rogationum, Oratio quæ dicta est in Laudibus, dicitur tantum ad Tertiam, Sextam et Nonam. In Vesperis autem sequentibus, si fit de Feria, dicitur vel alia propria, ut in Quadragesima, vel Dominicæ præcedentis, ut in aliis Feriis. Quæ Oratio præcedentis Dominicæ semper dicitur in feriali Officio per Hebdomadam, quando propria non assignatur. Infra Octavas dicitur Oratio ut in die Festi: similiter et in die Octava, nisi alia propria assignetur.
+
+3. Ante Orationem, etiam quando aliquis solus recitat Officium, semper dicitur Versus **Dóminus vobíscum,** et respondetur **Et cum spíritu tuo.** Qui Versus non dicitur ab eo qui non est saltem in ordine Diaconatus, nec a Diacono, præsente Sacerdote, nisi de illius licentia. Si quis autem ad Diaconatus ordinem non pervenerit, ejus loco dicat **Dómine, exáudi oratiónem meam,** et respondetur **Et clamor meus ad te véniat.** Deinde dicitur **Orémus,** postea Oratio: quæ si unica tantum dicatur, Versus **Dóminus vobíscum,** vel **Dómine exáudi,** repetitur finita Oratione, postquam fuerit responsum **Amen.** Sin autem plures Orationes dicendæ sint, ante quamlibet Orationem dicitur Antiphona et Versus, deinde **Orémus:** et post ultimam Orationem repetitur **Dóminus vobíscum:** postea dicitur **Benedicámus Dómino,** respondetur **Deo grátias.** Deinde dicitur Versus **Fidélium ánimæ:** qui Versus non dicitur post **Benedicámus Dómino,** ad Primam ante **Pretiósa etc.,** neque ad Completorium ante Versum **Benedícat etc.,** nec quando post aliquam Horam immediate sequitur Officium parvum beatæ Mariæ, vel Officium Defunctorum, aut Septem Psalmi Pœnitentiales, vel solæ Litaniæ.
+
+4. Si Oratio dirigatur ad Patrem, concluditur **Per Dóminum;** si ad Filium, **Qui vivis et regnas.** Si in principio Orationis fiat mentio Filii, dicatur **Per eúmdem;** si in fine Orationis, dicatur **Qui tecum vivit et regnat.** Si fiat mentio Spiritus Sancti, dicatur **In unitáte ejúsdem Spíritus Sancti, etc.**
+
+5. Quando plures Orationes dicuntur, prima tantum dicitur sub sua conclusione **Per Dóminum,** vel aliter, ut supra, aliæ non concluduntur, nisi in ultima Oratione; sed unicuique Orationi semper præponitur **Orémus,** præterquam in Officio Defunctorum, in quo, alio modo quam ut supra, Orationes dicuntur: item in Litaniis, Orationes omnes dicuntur conjunctim sub uno **Orémus,** ut suis locis habetur.
+
+#### XXXI De Hymno Te Deum
+
+1. Hymnus **Te Deum** dicitur in omnibus Festis per annum, tam trium quam novem Lectionum, et per eorum Octavas, excepto Festo sanctorum Innocentium, nisi venerit in Dominica; dicitur tamen in ejus die Octava. Dicitur etiam in omnibus Dominicis a Pascha Resurrectionis inclusive, usque ad Adventum exclusive; et a Nativitate Domini inclusive, usque ad Septuagesimam exclusive, et in omnibus Feriis temporis Paschalis, scilicet a Dominica in Albis usque ad Ascensionem, excepta Feria secunda Rogationum, in qua non dicitur.
+
+2. Non dicitur autem in Dominicis Adventus, et a Septuagesima usque ad Dominicam Palmarum inclusive, neque in Feriis extra tempus Paschale.
+
+3. Cum dicitur, omittitur semper nonum, vel tertium Responsorium, et statim dicitur post ultimam Lectionem.
+
+4. Cum non dicitur, ejus loco ponitur nonum, vel tertium Responsorium; quo dicto statim inchoantur Laudes. Similiter quando dicitur **Te Deum,** eo Hymno dicto statim inchoantur Laudes, præterquam in Nocte Nativitatis Domini: quia tunc dicitur Oratio, postea celebratur Missa, ut suo loco notatur.
+
+#### XXXII De Oratione Dominica et Salutatione Angelica
+
+1. Oratio Dominica **Pater noster,** et Salutatio Angelica **Ave, María,** semper dicitur secreto ante omnes Horas, præterquam ad Completorium, in cujus principio post Lectionem brevem **Fratres: Sóbrii,** dicto Versu **Adjutórium nostrum,** dicitur tantum **Pater noster,** secreto; et in fine Completorii, statim post Orationem beatæ Mariæ, dicitur **Pater noster, Ave María,** et **Credo,** totum similiter secreto. Finitis Horis, et dicto Versu **Fidélium ánimæ,** dicitur similiter secreto **Pater noster** tantum, nisi sequatur Officium beatæ Mariæ, quia tunc post illud dicitur **Pater noster,** ut supra, et nisi alia Hora subsequatur: tunc enim dicitur semel tantum **Pater noster,** cum **Ave María,** pro principio sequentis Horæ; qua finita, dicitur **Pater noster,** ita ut semper dicatur in fine ultimæ Horæ. Si autem post Vesperas immediate sequatur Completorium, dicto **Fidélium ánimæ** incipitur Versus **Jube, domne, benedícere.**
+
+2. Quando in fine Orationis Dominicæ proferendum est clara voce **Et ne nos indúcas,** semper in principio eadem voce proferuntur hæc duo verba **Pater noster,** ut in Precibus, et similibus: alias numquam proferuntur, sed dicitur totum secreto. Ad Laudes vero et Vesperas quando in feriali Officio dicuntur Preces, totum dicitur clara voce ab Hebdomadario.
+
+3. Salutatio Angelica semper dicitur ante Officium beatæ Mariæ, quando non conjungitur cum Officio Domini; quia tunc sufficit dixisse eam in principio cum Oratione Dominica.
+
+#### XXXIII De Symbolo Apostolorum et Symbolo S. Athanasii
+
+1. Symbolum Apostolorum semper dicitur ante Matutinum et Primam, et finito Completorio post Orationem Angelicam, totum secreto: etiamsi ad Primam et Completorium iterum dicendum sit cum Precibus. Quando vero dicitur cum Precibus ad Primam et Completorium, clara voce profertur **Credo in Deum,** et in fine **Carnis resurrectiónem:** reliquum dicitur secreto: alias totum secreto dicitur, ut supra.
+
+2. Symbolum S. Athanasii dicitur ad Primam post Psalmum **Retríbue,** in omnibus Dominicis per annum, quando Officium fit de Dominica, exceptis Dominicis infra Octavas Nativitatis Domini, Epiphaniæ, Ascensionis, et Corporis Christi, ac Dominica Resurrectionis et Pentecostes, in quibus dicuntur tantum tres Psalmi consueti, ut in Festis. In Dominicis infra alias Octavas, et in Dominica Trinitatis dicitur; alias numquam, neque si aliquod Festum Duplex celebretur in Dominica. Et in fine illius dicitur **Glória Patri.**
+
+#### XXXIV De Precibus
+
+1. Preces sunt aliquot Versus qui aliquando dicuntur ante Orationem, incipientes a **Kýrie eléison** vel a **Pater noster.**
+
+2. Preces Dominicales ad Primam et Completorium, ut in Psalterio, non dicuntur in Duplicibus, nec infra Octavas, nec in Vigilia Epiphaniæ, et Feria sexta et Sabbato post Octavam Ascensionis, etiamsi infra Octavam fiat Officium de Dominica, vel alio Festo Semiduplici, quia tunc ratione Octavæ non dicuntur; alias autem semper dicuntur.
+
+3. Preces feriales ad Laudes et per Horas distinctæ, ut in Psalterio, dicuntur tantum in Feriis Adventus, Quadragesimæ, Quatuor Temporum, et Vigiliarum quæ jejunantur (exceptis Vigilia Nativitatis Domini, ac Vigilia et Quatuor Temporibus Pentecostes), et tunc dicuntur flexis genibus. In aliis Feriis per annum numquam dicuntur nisi Dominicales, et in illis non flectuntur genua.
+
+4. In Feriis Adventus, Quadragesimæ, et Quatuor Temporum, dicuntur Preces feriales etiam ad Vesperas, si non sequatur Festum: ad Completorium dicuntur consuetæ de Dominica, sed flexis genibus. Dicuntur autem Preces flexis genibus ab Hebdomadario usque ad Versum **Dóminus vobíscum** ante primam Orationem: a circumstantibus autem, usque ad Versum **Benedicámus Dómino,** post ultimam Orationem.
+
+5. In Vigiliis Preces feriales dicuntur tantum ad Matutinum, et per Horas: ad Vesperas vero sequentes non dicuntur, quia inde fit de Festo. Quod si post Vigiliam S. Matthiæ sequatur primus dies Quadragesimæ, in Vesperis dicuntur Preces feriales, quamvis dicenda sit Oratio Dominicæ præcedentis, et non Vigiliæ. Quod etiam servatur quando in Feria sexta et Sabbato Quatuor Temporum Septembris fit Officium de Feria, cum in eis non occurrat Festum novem Lectionum: tunc enim in Vesperis Feriæ sextæ dicuntur Preces, quamvis dicenda sit Oratio Dominicæ præcedentis, non autem Feriæ Quatuor Temporum.
+
+6. Psalmus **Miserére** dicitur cum Precibus ad Vesperas tantum, et Psalmus **De profúndis** ad Laudes. In Officio Defunctorum dicuntur Psalmi, qui in eo Officio designantur.
+
+#### XXXV De Commemorationibus Communibus, seu Suffragiis Sanctorum
+
+1. Commemorationes communes, seu Suffragia de Sanctis quæ habentur in Psalterio post Vesperas Sabbati, dicuntur in fine Vesperarum et Laudum, ab Octava Epiphaniæ usque ad Dominicam Passionis exclusive, et ab Octava Pentecostes usque ad Adventum exclusive, in Dominicis, Feriis et Festis (nisi Officium sit Duplex, vel infra Octavas, etiamsi de Dominica, vel Semiduplici infra eas fiat), et illis adjungitur Commemoratio de Patrono, vel Titulo Ecclesiæ, ante vel post Commemorationem de sancta Maria, de sancto Joseph, et de Apostolis, pro dignitate illius; ita tamen, ut semper ultimo loco ponatur Commemoratio de Pace. Et ante illas in feriali Officio fit Commemoratio de Cruce, quæ habetur in Psalterio post Laudes Feriæ secundæ.
+
+2. Tempore Paschali fit alia Commemoratio de Cruce, ut ibi ponitur in Laudibus Feriæ secundæ post Dominicam in Albis, et ea solum tunc dicitur; non tamen in Duplicibus, neque infra Octavas, neque in Officio votivo de sanctissimo Eucharistiæ Sacramento, aut de Passione Domini.
+
+3. Si facienda sit Commemoratio alicujus Festi occurrentis, semper fit ante ipsa Suffragia consueta, etiam ante Commemorationem de Cruce.
+
+4. Commemoratio de sancta Maria non fit cum aliis, quando dicitur ejus Officium parvum, nec quandocumque fit Officium de ea.
+
+#### XXXVI De Antiphonis Beatæ Mariæ in fine Officii
+
+1. Antiphonæ beatæ Mariæ positæ in fine Psalterii post Completorium, singulæ dicuntur pro temporis diversitate, ut ibi annotatur, præterquam in triduo majoris Hebdomadæ ante Pascha.
+
+2. Dicuntur autem extra Chorum, tantum in fine Completorii, et in fine Matutini, dictis Laudibus, si tunc terminandum sit Officium; alioquin, si alia subsequatur Hora, in fine ultimæ Horæ. In Choro autem semper dicuntur quandocumque terminata aliqua Hora discedendum est a Choro.
+
+3. Numquam vero dicuntur post aliquam Horam, quando subsequitur cum Officio diei Officium Defunctorum, vel Septem Psalmi Pœnitentiales, aut Litaniæ, præterquam post Completorium, in quo semper dicuntur, etiamsi prædicta subsequantur: neque etiam dicuntur quando post aliquam Horam immediate subsequitur Missa. Dicuntur autem flexis genibus (præterquam in diebus Dominicis, a primis Vesperis Sabbati, et toto tempore Paschali), Hebdomadario tamen ad Orationem surgente.
+
+#### XXXVII De Officio parvo Beatæ Mariæ et aliis
+
+1. De Officio parvo beatæ Mariæ, de Officio Defunctorum, de Septem Psalmis Pœnitentialibus, et Litaniis, et de Psalmis Gradualibus, quando et quomodo, tam in Choro quam extra Chorum dicenda sint, habentur suis locis propriæ Rubricæ circa finem Breviarii.
+
+2. Tempore Paschali in Officio parvo beatæ Mariæ, quod dicitur in Choro, non additur **Allelúja** Antiphonis, neque Versibus, neque Responsoriis.
+
+---
+
+<!-- p. [unnumbered; section-opening page] -->
+# Additiones et Variationes
+
+### in Rubricis Breviarii
+
+## Ad Normam Bullæ «Divino Afflatu»
+
+---
+
+### Tit. I. — *De ratione divini Officii recitandi*
+
+IN recitatione divini Officii juxta Romanum Ritum Psalmi quotidie sumendi sunt ad singulas Horas canonicas de occurrenti hebdomadæ die, prout distribuuntur in Psalterio.
+
+2. Excipiuntur tamen omnia Festa novem Lectionum Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, omnia Duplicia I et II classis aliorum Sanctorum, Vigiliæ Epiphaniæ et Pentecostes, Dominicæ infra Octavas et integræ Octavæ Domini quæ in universali Ecclesia recoluntur, et Feria VI post Octavam Ascensionis, quorum omnium Officium persolvendum est prout assignatur vel in Breviario, vel in Proprio Diœcesis aut Instituti; hac tamen lege, ut Psalmi ad Laudes, Horas et Completorium semper sumantur ex Dominica, ut in Psalterio, ad Matutinum vero et ad Vesperas dicantur ut in Communi, nisi speciales Psalmi sint assignati. Item excipiuntur Vigilia Nativitatis Domini, tres ultimi dies Hebdomadæ majoris et Commemoratio Omnium Fidelium Defunctorum, in quibus Psalmi dicuntur proprio loco adnotati.
+
+3. In quolibet alio Festo Duplici, etiam majori, vel Semiduplici, vel Simplici, et per omnes Octavas supra non exceptas, semper dicuntur Psalmi, cum Antiphonis ad omnes Horas, et Versibus ad Matutinum, ut in Psalterio de occurrenti hebdomadæ die; reliqua omnia, et Antiphonæ ad *Magnificat* et *Benedictus,* ut in Proprio aut Communi. Quod si aliquod ex Festis Duplicibus aut Semiduplicibus proprias vel peculiariter assignatas habeat Antiphonas in aliqua Hora majori, eas in eadem Hora cum suis Psalmis, et ad Matutinum etiam Versibus, retinet; in ceteris Horis Psalmi et Antiphonæ dicuntur de Feria occurrenti.
+
+4. In omnibus novem Lectionum Officiis in I Nocturno dicuntur semper Lectiones de Scriptura occurrenti juxta Rubricas, adhibitis Responsoriis quæ singulis Feriis assignantur, dummodo resumendæ vel anticipandæ non sint Lectiones cujusvis Dominicæ impeditæ, quæ semper dicuntur cum suis Responsoriis; aut primo non sint ponenda, juxta proprias Rubricas, Responsoria Feriæ II infra Hebdomadam I post Epiphaniam vel Feriæ II infra Hebdomadam I post Octavam Pentecostes; aut demum non occurrant Octavæ Domini quæ in universa Ecclesia recoluntur, in quibus semper adhibenda sunt Responsoria de Octava. In Festis tamen Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum, in omnibus Duplicibus I vel II classis, in aliis Festis quæ propria habeant Responsoria, et in Officiis quibusvis quæ Lectiones pariter habeant proprias vel quæ occurrant in Feriis Lectiones de Scriptura nullimode habentibus, tam Lectiones quam Responsoria, quæ propria non sint, sumuntur de Communi juxta Rubricas; adhibitis tamen, per Octavas, Responsoriis de Festo, si propria de ipsa Octava non habeantur. Quod si in Festis vel Officiis, quæ Lectiones etiam proprias habeant, reponendæ sint juxta Rubricas Lectiones de aliquo Initio Scripturæ occurrentis, eæ leguntur cum Responsoriis propriis de Festo, si hæc habeantur, secus de Tempore, ut supra; numquam vero cum Responsoriis de Communi aut de Octava, quæ non sit de Tempore.
+
+5. Porro sic persolvendum est Officium in Festis Duplicibus et Semiduplicibus superius non exceptis, cauto quod ultimæ tres Antiphonæ cum Psalmis ad Matutinum Feriæ IV et omnes Antiphonæ cum Psalmis ad Laudes cujusque Feriæ semper sumuntur de I loco, et Versus Nocturnorum atque Antiphonæ ad Horas, etiam Tempore Adventus, Quadragesimæ et Passionis, dicuntur ut per Annum: Ad Matutinum Invitatorium, Hymnus, Lectiones cum Responsoriis II et III Nocturni propria vel de Communi; Antiphonæ vero, Psalmi et Versus trium Nocturnorum, nec non Lectiones cum Responsoriis I Nocturni, de Feria occurrenti.
+
+Ad Laudes et ad Vesperas Antiphonæ cum Psalmis, de Feria; Capitulum, Hymnus, Versus et Antiphona ad *Benedictus* et ad *Magnificat* cum Oratione, aut ex Proprio aut de Communi.
+
+Ad Horas minores et Completorium Antiphonæ cum Psalmis semper dicuntur de occurrenti Feria. Ad Primam pro Lectione brevi legitur Capitulum Nonæ ex Proprio aut de Communi. Ad Tertiam, Sextam et Nonam Capitulum, Responsorium breve et Oratio pariter sumuntur aut ex Proprio aut de Communi.
+
+6. In Officio sanctæ Mariæ in Sabbato et in Festis Simplicibus Officium sic persolvendum est: ad Matutinum Invitatorium et Hymnus dicuntur de eodem Officio vel de iisdem Festis; Psalmi cum suis Antiphonis et Versu de Feria occurrenti, ut supra; I et II Lectio cum suis Responsoriis de Feria, III vero Lectio de Officio vel Festo; ad Laudes et Vesperas Antiphonæ cum Psalmis semper de Feria; Capitulum, Hymnus, Versus et Antiphona ad *Benedictus* vel ad *Magnificat* cum Oratione, aut ex Proprio aut de Communi; ad reliquas autem Horas omnia dicuntur ut supra de Festis Duplicibus aut Semiduplicibus ordinatur.
+
+7. Similiter ordinatur Officium de omnibus Octavis num. 2 non exceptis, juxta qualitatem ritus Duplicis vel Semiduplicis, aut Simplicis, sumptis tamen omnibus quæ propria vel de Communi sumenda edicuntur, de ipso die Festo, nisi tamen propria de Octava habeantur. Lectiones vero II et III Nocturni in diebus infra Octavam quæ propriæ item non habeant, sumuntur aut ex Octavario aut de Communi juxta Rubricas; sed, quando non habeantur Lectiones de Homilia in Evangelium Festi, tam infra Octavam quam in die Octava, Lectiones III Nocturni dicuntur ut in Festo.
+
+8. In omnibus Officiis ritus Simplicis Psalmi ad Matutinum, qui in Psalterio in tres Nocturnos dispositi inveniuntur, sine interruptione dicuntur, cum suis novem Antiphonis extra Tempus Paschale, Tempore autem Paschali sub una tantum Antiphona, usque ad tertium Versum inclusive, omissis Versibus primo et secundo.
+
+### Tit. II. — *De Festorum præstantia*
+
+1. Ut recte dignoscatur quale ex pluribus Officiis sit nobilius et proinde sive in occurrentia, sive in concurrentia, sive in ordine repositionis, aut translationis, aut Commemorationum præferendum, cauto semper quod Festa Duplicia I classis primaria universalis Ecclesiæ præferuntur cuilibet Festo particulari, et quod Festa Dedicationis et Tituli Ecclesiæ propriæ et Patroni principalis loci, necnon Tituli et Sancti Fundatoris Ordinis seu Congregationis cedunt tantummodo prædictis Duplicibus I classis universalis Ecclesiæ, sequentes præstantiæ characteres considerandi sunt:
+
+*a) Ritus altior,* nisi occurrat Dominica, vel aliqua ex Feriis, Vigiliis aut Octavis privilegiatis, juxta Rubricas.
+
+*b) Major solemnitas,* scilicet si Festum celebretur cum feriatione, etiam in foro reducta vel sublata, aut cum Octava. Ratio tamen majoris solemnitatis per Octavam inductæ consideranda tantum est in die Festo atque in die Octava, non vero in diebus infra Octavam.
+
+*c) Ratio Primarii* aut *Secundarii.*
+
+*d) Dignitas personalis,* hoc ordine servato: Festa Domini, beatæ Mariæ Virginis, Angelorum, sancti Joannis Baptistæ, sancti Joseph, Apostolorum, Evangelistarum.
+
+2. In occurrentia, et in ordine repositionis, aut translationis, aut Commemorationum de Officiis eadem die occurrentibus alius quoque character considerandus est, nempe:
+
+*e) Proprietas Festorum.* Dicitur Festum alicujus loci proprium, si agatur, præterquam de Dedicatione et Titulo Ecclesiæ propriæ, de Patrono principali loci, de Titulo et Sancto Fundatore Ordinis seu Congregationis, ut supra, etiam de loci Patrono secundario, de Sancto, in Martyrologio vel in ejus Appendice approbata descripto, cujus habetur corpus vel aliqua insignis reliquia, vel de Sancto, qui ad Ecclesiam, vel locum, vel personarum cœtum speciales habeat relationes. Igitur Festum quodvis istiusmodi proprium, ceteris paribus, præfertur Festo universalis Ecclesiæ. Excipiuntur tamen Dominicæ, Feriæ, Vigiliæ et Octavæ privilegiatæ, quæ, sicut etiam Festa primaria Duplicia I classis universalis Ecclesiæ, de quibus supra, uniuscujusque loci propria considerantur et sunt. Festum autem universalis Ecclesiæ, cujusvis ritus, quia est præceptivum, ceteris paribus, præferri debet Festis quæ aliquibus locis ex mero Indulto sanctæ Sedis sunt concessa, quin tamen propria, sensu quo supra, dici queant.
+
+### Tit. III. — *De Octavis*
+
+1. Octavæ inter se præferuntur eadem lege, qua Festa ipsa ad quæ pertinent.
+
+2. Octavæ Festorum Duplicium I classis Domini, quæ in universali Ecclesia cum Octava recoluntur, ita sunt privilegiatæ ut de eis semper fiat aut Officium aut Commemoratio, ut fusius habetur in Rubricis. Attamen Octava Corporis Christi iisdem gaudet privilegiis quibus Octava Epiphaniæ; Octava Ascensionis, et Octava Sacratissimi Cordis Jesu, in occurrentia tantum, iisdem quibus Octava Nativitatis.
+
+3. Octavæ aliorum Festorum Duplicium I classis sunt Octavæ communes, et quandoque omittuntur juxta Rubricas. Alias, nisi a nobiliori Officio impediantur, per integram recoluntur Octavam, sub ritu Semiduplici in diebus infra Octavam, sub ritu autem Duplici majori in die Octava.
+
+4. Octavæ vero Duplicium II classis sunt Octavæ simplices, et celebrantur tantum in ipsa die Octava, sub ritu quidem Simplici, nisi pariter a nobiliori Officio impediantur: nil autem fit de eis infra Octavam.
+
+5. De Octavis quæ non sunt in Breviario Romano, nihil fit a die 17 Decembris ad Vigiliam Nativitatis Domini, a Feria IV Cinerum ad Dominicam in Albis, et a Vigilia Pentecostes ad Festum Ssmæ Trinitatis, semper inclusive.
+
+### Tit. IV. — *De Festorum occurrentia accidentali eorumque translatione*
+
+1. De Dominicis majoribus I classis, quodvis Festum in eis occurrat, semper faciendum est Officium, Dominicæ vero II classis cedunt tantummodo Festis Duplicibus I classis, quo in casu de Dominica fit Commemoratio in utrisque Vesperis et Laudibus, cum IX Lectione ad Matutinum.
+
+2. De Dominicis minoribus seu per Annum, semper fieri debet Officium, nisi occurrat aliquod Duplex I vel II classis, aut quodvis Festum novem Lectionum Domini, non autem eorum dies Octava; et, in casu, in Officio Festi, fit Commemoratio Dominicæ in utrisque Vesperis et Laudibus, cum IX Lectione ad Matutinum. Excipiuntur tamen Dominicæ infra Octavas quaslibet privilegiatas, in quibus Officium fieri nequit de Festis, quæ infra ipsas Octavas prohibentur. Itemque excipiuntur Dominicæ a die 25 ad 28 Decembris aut in die Octava Epiphaniæ occurrentes, et Dominica impedita vel a superveniente Septuagesima vel a Dominica ultima post Pentecosten, de quibus omnibus fit Officium ut habetur in propriis Rubricis; nec non Dominica occurrens a die 1 ad 6 Januarii, vel die 7 a superveniente Dominica infra Octavam Epiphaniæ impedita, cujus Officium fit in Vigilia Epiphaniæ, et in qua, nisi a nobiliori Officio impediatur, celebratur Festum Ssmi Nominis Jesu.
+
+3. Duplicia I et II classis quæ ab alio nobiliori Officio impediuntur, transferenda sunt in proximiorem insequentem diem quæ libera sit ab alio Festo Duplici I vel II classis, a Dominica occurrenti, a Vigilia privilegiata, et ab aliis Officiis quæ hujusmodi Festa respective excludant.
+
+4. Festa Duplicia majora aut minora et Semiduplicia, si quando sint impedita, non transferuntur, sed commemorantur aut penitus omittuntur, ut dicitur in titulo VII *De Commemorationibus.*
+
+5. Porro, si in Dominicis majoribus quæ sub ritu Semiduplici aut Duplici majori recoluntur, occurrat Officium Duplex majus aut minus, vel Semiduplex, vel Festum aut dies Octava Simplex, fit de Dominica cum Commemoratione Officii occurrentis, juxta Rubricas, omissa IX Lectione ipsius Officii. Idem fit in Dominicis minoribus, nisi in Dominicis per Octavam quamlibet privilegiatam II Ordinis occurrat Festum Duplex I classis, et in die quidem Octava quod sit Ecclesiæ universalis, aut in aliis Dominicis occurrat Festum quodvis Domini aut quodlibet Duplex I vel II classis; quibus in casibus, ut supra, num. 2, dictum est, fit de Festo, cum Commemoratione et IX Lectione Dominicæ.
+
+6. Commemoratio Omnium Fidelium Defunctorum excludit tum Festa occurrentia, tum Festa transferenda cujusvis ritus. Si tamen dies 2 Novembris in Dominicam inciderit, Officium fit de Dominica cum Commemoratione Octavæ omnium Sanctorum; et Commemoratio omnium fidelium defunctorum, iisdem cum juribus, in diem 3, tamquam in sedem propriam, transfertur.
+
+7. Quando occurrunt accidentaliter duo Festa quæ transferri non valeant juxta Rubricas, vel duæ Octavæ, in honorem ejusdem Personæ, fit Officium de Festo vel de Octava nobiliori, omissa, nisi agatur de mysteriis Domini diversis, Commemoratione alterius. Similiter, si infra aliquam Octavam communem, vel in die ipsa Octava, etiam Simplici, occurrat Festum cujusvis ritus de eadem Persona, fit Officium de Festo, sub ritu tamen et cum privilegiis ipsi Octavæ convenientibus, nisi tamen Festum sub altiori ritu sit celebrandum, et omissa vel addita Commemoratione Octavæ, ut supra. Si occurrat vero Festum aliquod infra aliquam Octavam privilegiatam de eadem Persona, aut in ipsa die Octava, fit de Officio nobiliori juxta Rubricas, et omittitur vel additur Commemoratio alterius, pariter ut supra.
+
+8. Dies Octava cujusvis Festi accidentaliter impediti non transfertur, sed sua die celebratur aut omittitur, juxta Rubricas; excepta tamen Octava sanctissimi Nominis Jesu, necnon Octava Sanctæ Familiæ Jesu, Mariæ, Joseph, sicubi fuerit celebranda, quæ per octo dies agitur ab ipso respectivo Festo computandos, etiam si hoc extra Dominicam recolatur.
+
+### Tit. V — *De Festorum occurrentia perpetua eorumque repositione*
+
+1. Festa ritus Duplicis sive majoris sive minoris aut Semiduplicis universalis Ecclesiæ, sive fixa sive mobilia, sicubi perpetuo impediantur, non reponuntur, sed die sua commemorantur vel omittuntur, ut dicitur in titulo VII *De Commemorationibus.* Idem servatur de Festis alicujus Nationis, vel Diœcesis, vel Ordinis, vel Instituti, quæ pariter, si in aliqua particulari Ecclesia suo die impediantur, commemorantur vel omittuntur, ut supra. Festa vero propria alicujus Nationis, Diœcesis, Ordinis, Instituti vel particularis Ecclesiæ, quæ in tota Natione, Diœcesi, Ordine vel Instituto, aut in sua particulari Ecclesia respective impediantur, reponuntur in proximiori sequenti die libera, juxta Rubricas.
+
+2. Festa fixa Duplicia I et II classis perpetuo impedita reponuntur, tamquam in sede propria, in prima die libera ab alio Festo Duplici I aut II classis, a Vigilia privilegiata et ab aliis Officiis quæ hujusmodi Festa respective excludant. Duplicia vero I et II classis certis Feriis assignata, si perpetuo impediantur, item tamquam in sede propria reponuntur in Feria proxime insequenti perpetuo libera, ut supra.
+
+3. Dominicæ, sive majores sive minores, excludunt assignationem perpetuam cujusvis Festi etiam Duplicis I classis, excepta Dominica inter Circumcisionem Domini et Epiphaniam, in qua fit Officium Ssmi Nominis Jesu, Dominica infra Octavam Epiphaniæ, in qua Festum agitur Sanctæ Familiæ Jesu, Mariæ, Joseph, Dominica I post Pentecosten, in qua celebratur Festum Ssmæ Trinitatis et Dominica ante Kalendas Novembris, in qua recolitur Festum D. N. Jesu Christi Regis.
+
+4. Commemoratio omnium fidelium defunctorum excludit tum Festa occurrentia, tum Festa transferenda cujusvis ritus.
+
+5. Si infra Octavam aut in ipsa die Octava, perpetuo occurrat Festum aliquod de eadem Persona, omnia observantur quæ de occurrentia accidentali dicta sunt in titulo IV, num. 7; excepto quidem Festo Sanctæ Familiæ Jesu, Mariæ, Joseph, quod peculiaribus regitur Rubricis in Proprio de Tempore exstantibus.
+
+6. Quando Festa universalis Ecclesiæ quæ cum Octava celebrantur, ob impedimentum perpetuum, in die proxime sequenti, juxta Rubricas, sint reponenda, non ideo reponitur eorum dies Octava, quæ in universa Ecclesia die sua recoli debet. Idem dicendum de die Octava Festi proprii alicujus Nationis, Diœcesis, Ordinis vel Instituti, quod in aliqua particulari Ecclesia, alia die sit reponendum. E contra, si Festum proprium alicujus Nationis, Diœcesis, Ordinis, Instituti vel particularis Ecclesiæ, quod cum Octava celebretur, in tota Natione, Diœcesi, Ordine vel Instituto, aut in sua particulari Ecclesia respective impeditum fuerit, ideoque reponatur juxta Rubricas, reponitur etiam dies Octava, quæ celebrabitur octavo die post celebratum Festum, ac si ipsum in die propria recolatur.
+
+### Tit. VI. — *De concurrentia Festorum*
+
+1. Dominicæ majores habent Vesperas integras in concurrentia cum quovis Festo quod non sit Duplex I aut II classis; atque in I Vesperis extra Adventum sumunt Antiphonas cum Psalmis de Sabbato, in Adventu autem Antiphonas de propriis Laudibus cum iisdem Psalmis de Sabbato.
+
+2. Dominicæ minores cedunt Vesperas Duplicibus I aut II classis, et omnibus Festis Domini, non vero diebus Octavis item Domini, quæ in Ecclesia universali non sint privilegiatæ; integras autem habent Vesperas in concursu cum aliis Festis et Officiis, sumptis in I Vesperis Antiphonis et Psalmis de Sabbato, aut, infra ipsas Octavas Domini privilegiatas, de Octava currenti. Et similiter Festa Domini, etiam secundaria, in Dominica occurrentia, et Vigilia Epiphaniæ, integras habent Vesperas in concursu cum Duplicibus majoribus et minoribus, quæ non sint Domini; ipsaque in concursu cum aliis Domini Festis eas sequuntur normas quæ inferius, num. 4, sunt expositæ.
+
+3. Leges peculiares quibus ordinantur Vesperæ infra Octavam Nativitatis Domini, habentur suo loco in propriis Rubricis.
+
+4. Quando duo Officia ejusdem Personæ simul concurrant, si ea sint diversi ritus aut nobilitatis, fit totum de nobiliori, omissa, nisi agatur de Mysteriis Domini diversis, Commemoratione alterius; in paritate autem ritus et nobilitatis, si agatur de Mysteriis Domini diversis, Vesperæ fiunt a Capitulo de sequenti cum Commemoratione præcedentis, secus autem, et quoties Officia non sint Domini, fit totum de præcedenti, omissa Commemoratione sequentis.
+
+### Tit. VII — *De Commemorationibus*
+
+1. In Duplicibus I classis fit Commemoratio de Officio præcedentis diei, tantum si illud fuerit aut Dominica quævis (non tamen Dominica post Octavam Epiphaniæ vel Pentecostes in Sabbatum anticipata), præterquam in I Vesperis Nativitatis et Epiphaniæ, aut Octava privilegiata, aut Duplex I vel II classis, aut Feria Adventus et Quadragesimæ, etiam si, a nobiliori Officio impeditum, sua die solam habuerit Commemorationem. In occurrentia fit Commemoratio de Dominica qualibet, etiam anticipata (de qua tamen, si ea fuerit post Octavam Epiphaniæ vel Pentecostes in Sabbatum anticipata, nihil fit in II Vesperis), de Octava privilegiata, de Vigilia Epiphaniæ, et de Feria majori; necnon, extra Festa primaria Domini I classis Ecclesiæ universalis, de quolibet Duplici sive majori sive minori aut Semiduplici, de quibus tamen, nisi hæc fuerint Domini Festa in Dominica quavis aut in Vigilia Epiphaniæ occurrentia, fit tantum in Laudibus. De sequenti autem Officio, etiam impedito ut supra, fit semper Commemoratio, præterquam de die infra Octavam non privilegiatam, et de Officio Simplici.
+
+2. In Duplicibus II classis de Officio præcedentis diei, etiam a nobiliori impedito, ut numero superiori dictum est, semper fit Commemoratio, præterquam de Dominica XXIII post Pentecosten in Sabbatum anticipata, de Festo Semiduplici, de die infra Octavam non privilegiatam, de Feria quæ non sit Adventus et Quadragesimæ; et, in Festo Circumcisionis, etiam de Dominica et de Duplici majori aut minori. In occurrentia fit Commemoratio de Dominica minori, etiam anticipata, de Vigilia Epiphaniæ, de quolibet Duplici vel Semiduplici, de die infra Octavam privilegiatam, de Feria majori, de Vigilia communi, extra Dominicam quamlibet occurrente, et de Festo aut die Octava simplici; et de Festo aut die Octava simplici non fit in I Vesperis, neque de Dominica post Octavam Epiphaniæ vel Pentecostes in Sabbatum anticipata fit in II Vesperis. De sequenti autem Officio, etiam impedito ut supra, fit semper Commemoratio, præterquam de die infra Octavam non privilegiatam, et de Officio Simplici.
+
+3. In Officio Commemorationis Omnium Fidelium Defunctorum nulla fit Commemoratio cujusvis Festi vel Officii occurrentis, quod proinde, si transferri nequeat juxta Rubricas, penitus omittitur.
+
+4. Pro Commemoratione sequentis diei infra Octavam, etiam privilegiatam, quando sit facienda, sumuntur Antiphona et Versus e I Vesperis Festi, nisi habeantur propria per singulos dies infra Octavam, aut specialiter per totam Octavam assignata, aut denique nisi extra diem festum sint incongrua.
+
+5. Quando plures fieri debeant Commemorationes, cauto quod in Vesperis semper fit prima Commemoratio de Officio concurrenti, cujusvis ritus et dignitatis, si ea facienda sit juxta Rubricas, et quod, exstante in pluribus simplificatis Officiis pari nobilitate, Commemoratio pro I Vesperis Commemorationi pro II Vesperis, etiam infra Octavam Nativitatis Domini, anteponitur; tam in Vesperis quam in Laudibus, hic ordo servatur, præposita quidem Commemoratione Officii juxta titulum II nobilioris, si plura Officia ad unum eumdemque e numeris mox ponendis referantur: 1 de Dominica qualibet vel de Vigilia Epiphaniæ, et, ante Dominicam minorem et ipsam Vigiliam, de quolibet Festo Domini, quod Officio Dominicæ hujusmodi ac Vigiliæ, ut dictum est titulo IV, num. 5, in occursu præfertur; 2 de die infra Octavam Epiphaniæ aut Corporis Christi; 3 de die Octava Duplici majori; 4 de Duplici majori; 5 de Duplici minori; 6 de Semiduplici; 7 de die infra Octavam Nativitatis Domini vel Ascensionis vel Sacratissimi Cordis Jesu; 8 de die infra Octavam communem; 9 de Feria VI post Octavam Ascensionis; 10 de Feria majori; 11 de Vigilia communi; 12 de die Octava Simplici; 13 de Simplici.
+
+### Tit. VIII — *De Conclusione propria Hymnorum et Versu proprio ad Primam, de Suffragio Sanctorum, de Precibus, de Symbolo Athanasiano*
+
+1. Quando eodem die plura occurrunt Officia, quæ propriam habeant Conclusionem Hymnorum vel proprium Versum ad Primam, Conclusio et Versus dicuntur, quæ propria sunt Officii quod recitatur. Quod si Officium diei careat Conclusione et Versu propriis, sumuntur Conclusio et Versus, quæ sint propria Officii primo loco inter cetera Conclusionem aut Versum proprium habentia commemorati, ita tamen, ut neque in I aut II Vesperis, neque ad Completorium eas respective sequens adhibeatur Conclusio alicujus Festi aut diei Octavæ Simplicis, aut sanctæ Mariæ in Sabbato, si de eis ad ipsas Vesperas omittenda sit Commemoratio. Deficientibus vero etiam Officii commemorati Conclusione et Versu Propriis, dicuntur Conclusio et Versus de occurrenti Octava communi, vel secus de Tempore. In Officiis tamen de Tempore Adventus, quamvis Conclusio Hymnorum propria non habeatur, numquam adhibetur Conclusio *Jesu, tibi sit glória, Qui natus es de Vírgine.*
+
+2. Symbolum Athanasianum additur ad Primam in Festo Ssmæ Trinitatis et in Dominicis tantummodo post Epiphaniam et post Pentecosten, quando de eis persolvendum est Officium, salva exceptione de qua numero sequenti.
+
+3. Quando in Dominica fit Commemoratio Duplicis, vel cujusvis Octavæ, omittuntur Suffragium, Preces et Symbolum Athanasianum. In Feriis vero in quibus item fit Commemoratio Duplicis aut Octavæ, omittuntur Suffragium et Preces Dominicales ad Primam et Completorium; non autem Preces Feriales, si sint dicendæ.
+
+### Tit. IX. — *De Festis Dedicationis, aliisque particularibus Ecclesiis propriis*
+
+1. Festum Dedicationis cujuslibet Ecclesiæ est semper primarium, et Festum Domini.
+
+2. Anniversarium Dedicationis Ecclesiæ Cathedralis et Festum Titulare ejusdem celebranda sunt sub ritu Duplici I classis cum Octava per totam Diœcesim ab universo Clero sæculari et etiam regulari Kalendarium Diœcesanum adhibente; a Regularibus vero utriusque sexus in eadem Diœcesi commorantibus ac proprium Kalendarium habentibus, pariter sub ritu Duplici I classis, absque tamen Octava, nisi hæc ex alio titulo sit celebranda.
+
+3. Festa Patronorum principalium Oppidi vel Civitatis, Diœcesis, Provinciæ et Nationis, Clerus sæcularis et regularis ibi degens et Kalendarium Diœcesanum sequens, sub ritu Duplici I classis cum Octava celebrabit; Regulares vero ibidem commorantes et Kalendarium proprium habentes, eadem Festa, quamvis feriata in foro numquam fuerint, eodem ritu celebrabunt, absque tamen Octava, nisi pariter eis alio titulo debeatur.
+
+4. Si Patronus loci præcipuus, aut Titulus Ecclesiæ, aut alius Sanctus qui sub ritu Duplici I vel II classis alicubi celebretur, cujus Festum ad normam tit. II num. 2 harum Rubricarum proprium censeri debeat, descriptus sit in Kalendario cum aliis Sanctis, quibus est ex natura sua conjunctus, scilicet quando inter eos necessaria consanguinitatis aut affinitatis ratio intercedit, non est a Sociis separandus. Si vero illis conjunctus sit ex occasione tantum, quia scilicet eadem die obierint, tunc a Sociis separatur, et de eo agitur Festum sub ritu competenti. Quod si Socii sint cum eo descripti in Kalendario sub ritu pariter Duplici I vel II classis, in proxima die reponuntur, juxta Rubricas, sub ritu quo in Kalendario inscribuntur; si vero inscripti fuerint sub alio quovis ritu, de eis fit aut omittitur Commemoratio, juxta superiores Rubricas, in Officio ipso de Patrono aut alio Sancto proprio, ut supra.
+
+5. Si Patronus secundarius, vel alius Sanctus proprius, ut supra, qui sub ritu Duplici majori vel minori aut Semiduplici celebrari debeat, pariter cum Sociis descriptus sit in Kalendario sub ritu Simplici, de eo fit Festum sub ritu competenti, et de Sociis fit tantum Commemoratio, juxta Rubricas. Si tamen inter eos necessaria consanguinitatis aut affinitatis ratio intercedat, vel etiam si eodem loco, eodem tempore, eadem de causa vitam obierint, Patronus aut alius Sanctus proprius a Sociis non separatur, sed de omnibus simul celebratur Festum sub ritu qui Patrono aut Sancto proprio competat. Quod item fit si omnes qualibet de causa simul in Kalendario descripti sint sub ritu Duplici majori vel minori aut Semiduplici. In his tamen casibus Sancti proprii nomen et gesta, quæ sejuncta sint, in Oratione et Lectionibus II Nocturni nomini et gestis Sociorum præferuntur.
+
+---
+
+## Duae Tabellae
+
+### Ex Rubricis Generalibus Breviarii juxta Constitutionem «Divino Afflatu» reformatis excerptæ
+
+In quarum prima statim videri poterit de quo celebrandum erit Officium, si plura eodem die Festa vel Officia sive perpetuo sive accidentaliter occurrant; in altera vero, quomodo Officium præcedens concurrat in Vesperis cum Officio sequentis diei.
+
+In alterutra Tabella hoc ordine reperietur quod quæritur: PRIMUM inveniatur numerus positus in quadrangulo illo, in quo Officia, de quibus est controversia, sibi invicem occurrunt; deinde legatur regula juxta dictum numerum descripta, et ex ea clare videbitur quid sit agendum.
+
+Exempli gratia: Quadrangulum, in quo sibi invicem occurrunt, in prima Tabella, Duplex I classis et Dominica I classis, erit quod invenitur ultimo loco in eadem linea in qua inscribitur Duplex I classis, in quo signatus est numerus 6; quia, si ad ipsum quadrangulum tam Duplex I classis quam Dominica I classis ex eorum locis recto tramite pergerent, in eo sibi invicem occurrerent. Regula autem juxta dictum numerum 6 apposita sic habet:
+
+6 *Officium de secundo, Translatio de primo.* Id est Officium fiat de *Dominica I classis* et *Duplex I classis* transferatur juxta Rubricas; quia, cum in his regulis dicitur de primo, seu præcedenti, intelligitur de Festo vel Officio in superiori parte Tabellæ apposito, ut *Duplex* prædictum; cum de secundo, vel sequenti, de Officio in inferiori parte sub numeris apposito, ut *Dominica* prædicta.
+
+In aliquibus autem quadrangulis positus est 0, quia nullus occursus aut concursus esse potest inter Officia simul ad diem quadrangulum occurrentia.
+
+Scire tamen oportet quæ sint Dominicæ et Feriæ majores, quæ Vigiliæ privilegiatæ, et quæ Duplicia I et II classis et majora, tam Primaria quam Secundaria; sicut et quæ Officia, ad effectum tit. II, n. 1 superiorum Rubricarum, cum Feriatione vel cum Octava celebrentur.
+
+### Dominicæ Majores
+
+DIVIDUNTUR IN DUAS CLASSES:
+
+#### *Dominicæ I classis*
+
+quæ in occurrentia, etiam accidentali, Festis quibuslibet præferuntur:
+
+Prima Adventus — Passionis
+Prima Quadragesimæ — Palmarum
+Secunda Quadragesimæ — Paschatis
+Tertia Quadragesimæ — In Albis
+Quarta Quadragesimæ — Pentecostes
+
+#### *Dominicæ II classis*
+
+quæ in occurrentia accidentali Festis quibuslibet præferuntur, præterquam Duplicibus I classis:
+
+Secunda Adventus — Septuagesimæ
+Tertia Adventus — Sexagesimæ
+Quarta Adventus — Quinquagesimæ
+
+### Feriæ Majores
+
+DIVIDUNTUR IN DUAS CLASSES:
+
+#### *Feriæ privilegiatæ*
+
+quæ in occurrentia Festis quibuslibet præferuntur:
+
+Feria Quarta Cinerum
+Feriæ omnes Majoris Hebdomadæ
+
+#### *Feriæ non privilegiatæ*
+
+quæ in occurrentia Festis tantum Simplicibus præferuntur:
+
+Adventus — Passionis ante Dñicam Palmarum
+Quadragesimæ post diem Cinerum — Quatuor Temporum Septembris
+— Secunda Rogationum
+
+### Vigiliæ Privilegiatæ
+
+DIVIDUNTUR IN DUAS CLASSES
+
+#### *Vigiliæ I classis*
+
+quæ in occurrentia Festis quibuslibet præferuntur:
+
+Vigilia Nativitatis Domini — Vigilia Pentecostes
+
+#### *Vigilia II classis*
+
+quæ in occurrentia præfertur Festis quibuslibet, præterquam Duplicibus I vel II classis et Festis Domini:
+
+Vigilia Epiphaniæ
+
+### Duplicia I Classis Primaria
+
+Nativitas Domini
+Epiphania Domini
+Pascha Resurrectionis cum tribus antecedentibus et duobus sequentibus diebus
+Ascensio Domini
+Pentecostes cum duobus sequentibus diebus
+Festum Ssmæ Trinitatis
+» Ssmi Corporis Christi
+» sacratissimi Cordis Jesu
+» D. N. J. Christi Regis
+Conceptio immaculata B. Mariæ Virg.
+Annuntiatio B. Mariæ Virg.
+Assumptio B. Mariæ Virg.
+Dedicatio S. Michaëlis Archangeli
+Nativitas S. Joannis Baptistæ
+Festum S. Joseph, Sponsi B. Mariæ Virg., Conf.
+Solemnitas S. Joseph, Sponsi B. Mariæ Virg., Conf. et Ecclesiæ universalis Patroni
+Festum Ss. Petri et Pauli Apostolorum
+Festum Omnium Sanctorum
+Dedicatio Ecclesiæ propriæ, ejusque Anniversarium
+Dedicatio Ecclesiæ Cathedralis, ejusque Anniversarium
+Titulus propriæ Ecclesiæ
+Titulus Ecclesiæ Cathedralis
+Patroni principales Oppidi, vel Civitatis, Diœcesis, Provinciæ et Nationis
+Titularis et Sanctus Fundator Ordinis seu Congregationis
+
+### Duplex I Classis Secundarium
+
+Pretiosissimi Sanguinis D. N. J. C.
+
+### Duplicia II Classis Primaria
+
+Circumcisio Domini
+Transfiguratio Domini
+Dedicatio Archibasilicæ Ssmi Salvatoris
+Purificatio B. Mariæ Virg.
+Visitatio B. Mariæ Virg.
+Nativitas B. Mariæ Virg.
+Festum S. Andreæ Ap.
+» S. Thomæ Ap.
+» S. Joannis Ap. et Ev.
+» S. Matthiæ Ap.
+» Ss. Philippi et Jacobi App.
+» S. Jacobi Ap.
+Festum S. Bartholomæi Ap.
+» S. Matthæi Ap. et Ev.
+» Ss. Simonis et Judæ App.
+» S. Marci Ev.
+» S. Lucæ Ev.
+» S. Stephani Protomartyris
+» Ss. Innocentium Mm.
+» S. Annæ, Matris B. Mariæ Virg.
+» S. Laurentii Mart.
+» S. Joachim, Patris B. Mariæ Virg., Conf.
+
+### Duplicia II Classis Secundaria
+
+Festum Ssmi Nominis Jesu
+» Inventionis S. Crucis
+» septem Dolorum B. M. V. mense Septembri
+Festum Ssmi Rosarii B. M. V.
+» Maternitatis B. M. V.
+
+### Duplicia Majora Primaria
+
+Dies Octava cujuslibet Duplicis I classis Primarii
+Festum Sanctæ Familiæ Jesu, Mariæ, Joseph
+Dedicatio Basilicarum Ss. Petri et Pauli App.
+Dedicatio S. Mariæ ad Nives
+Præsentatio B. Mariæ Virginis
+Festum S. Gabrielis Archangeli
+» S. Raphaëlis Archangeli
+» Ss. Angelorum Custodum
+Decollatio S. Joannis Baptistæ
+Festum S. Petri Ap. ad Vincula
+» S. Barnabæ Ap.
+» S. Benedicti Abb.
+» S. Dominici Conf.
+» S. Francisci Assisiensis Conf.
+» S. Ignatii Conf.
+» S. Francisci Xaverii Conf.
+» Patronorum minus principalium
+
+### Duplicia Majora Secundaria
+
+Dies Octava cujuslibet Duplicis I classis Secundarii
+Exaltatio S. Crucis
+Apparitio B. Mariæ Virg. immaculatæ
+Festum septem Dolorum B. Mariæ Virg., tempore Passionis
+Commemoratio B. Mariæ Virg. de Monte Carmelo
+Festum Ssmi Nominis Mariæ
+Festum B. Mariæ Virg. de Mercede
+Apparitio S. Michaëlis Archangeli
+Cathedra S. Petri Ap. Romæ
+Cathedra S. Petri Ap. Antiochiæ
+Conversio S. Pauli Ap.
+Commemoratio S. Pauli Ap.
+Festum S. Joannis Ap. ante Portam Latinam
+
+### Alia Festa Primaria
+
+Dies Natalitia, vel quasi-Natalitia, cujuscumque Sancti.
+
+### Alia Festa Secundaria
+
+Impressio sacrorum Stigmatum sancti Francisci Conf.
+Inventio S. Stephani Protomartyris
+Festa sive Domini, sive B. Mariæ Virg. sub aliquo peculiari titulo, sive Sanctorum, præter eorumdem Natalem diem, uti Inventionis, Translationis, Patrocinii et hisce similia
+
+### Festa Feriata
+
+Dominicæ omnes
+Nativitas Domini
+Circumcisio
+Epiphania
+Feria II et III Paschatis
+Ascensio Domini
+Feria II et III Pentecostes
+Festum Sanctissimi Corporis Christi
+Inventio S. Crucis
+Conceptio immaculata B. M. V.
+Purificatio B. Mariæ Virg.
+Annuntiatio B. Mariæ Virg.
+Assumptio B. Mariæ Virg.
+Nativitas B. Mariæ Virg.
+Dedicatio S. Michaëlis Archangeli
+Nativitas S. Joannis Baptistæ
+Festum S. Joseph, Sponsi B. Mariæ Virg., Conf.
+Solemnitas S. Joseph, Sponsi B. Mariæ Virg., Conf. et Ecclesiæ universalis Patroni
+Festum S. Andreæ Ap.
+» S. Thomæ Ap.
+» S. Joannis Ap. et Ev.
+» S. Matthiæ Ap.
+» Ss. Philippi et Jacobi App.
+» Ss. Petri et Pauli App.
+» S. Jacobi Ap.
+» S. Bartholomæi Ap.
+» S. Matthæi Ap. et Ev.
+» Ss. Simonis et Judæ App.
+» S. Stephani Protomartyris
+» Ss. Innocentium Mm.
+» S. Annæ, Matris B. Mariæ Virg.
+Festum S. Laurentii Mart.
+» S. Joachim, Patris B. Mariæ Virg., Conf.
+» Omnium Sanctorum
+Festum Patronorum principalium Oppidi vel Civitatis, Diœcesis, Provinciæ et Nationis
+
+*Festum Feriatis æquiparatum*
+
+Festum Sacratissimi Cordis Jesu
+
+### Festa quæ cum Octava celebrantur
+
+alia gaudent Octava privilegiata, de qua semper fit aut Officium, aut saltem Commemoratio; alia Octava communi, de qua etiam Commemoratio quandoque omitti potest, juxta Rubricas; alia Octava simplici de qua fit tantum in die Octava.
+
+#### Octavæ Privilegiatæ
+
+de quibus semper fit aut Officium aut Commemoratio dividuntur in tres ordines:
+
+**Octavæ I Ordinis**
+
+quæ in occurrentia Festis quibuslibet præferuntur:
+
+Octava Paschatis | Octava Pentecostes
+
+**Octavæ II Ordinis**
+
+quæ in diebus infra Octavam Festis quibuslibet præferuntur præterquam Duplicibus I classis, in die autem Octava etiam Duplicibus I classis quæ non sint Ecclesiæ universalis:
+
+Octava Epiphaniæ Domini | Octava Ssmi Corporis Christi
+
+**Octavæ III Ordinis**
+
+quæ in occurrentia iisdem tantum Festis præferuntur atque Octavæ communes:
+
+Octava Nativitatis Domini | Octava Sacratissimi Cordis Jesu
+Octava Ascensionis Domini |
+
+#### Octavæ Communes
+
+quæ infra Octavam præferuntur tantum Officiis Simplicibus, et in die Octava omnibus Duplicibus quæ non sint I aut II classis:
+
+Octava Conceptionis immaculatæ B. Mariæ Virg. | Octava Solemnit. S. Joseph
+Octava Assumptionis ejusdem | Octava Ss. Petri et Pauli App.
+Octava Nativitatis S. Joannis Baptistæ | Octava Omnium Sanctorum
+| Octava Dedicationis et Tituli propriæ Ecclesiæ
+
+Octava Dedicationis et Tituli Ecclesiæ Cathedralis | Octava Tituli et Sancti Fundatoris Ordinis seu Congregationis
+Octava Patroni principalis Oppidi vel Civitatis, Diœcesis, Provinciæ et Nationis | Octavæ aliorum Festorum Duplicium I classis, quæ alicubi cum Octava celebrentur
+
+#### Octavæ Simplices
+
+quæ in die Octava Festis Simplicibus præferuntur et Officio Sanctæ Mariæ in Sabbato:
+
+Octava Nativitatis B. Mariæ Virg. | Octava Ss. Innocentium Mm.
+Octava S. Joannis Ap. et Ev. | Octava S. Laurentii Mart.
+Octava S. Stephani Protomartyris | Octavæ aliorum Festorum Duplicium II classis, quæ alicubi cum Octava celebrentur.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Prima Tabella — Si occurrat eodem die...
+
+*(columnæ: 1 Duplex I classis; 2 Duplex II classis; 3 Dies Octava Communis; 4 Duplex majus; 5 Duplex minus; 6 Semiduplex; 7 Dies infra Oct. communem; 8 Vigilia; 9 Dies Octava Simplex; 10 Simplex)*
+
+| et... \ cum col. → | 1 | 2 | 3 | 4 | 5 | 6 | 7 | 8 | 9 | 10 |
+|---|---|---|---|---|---|---|---|---|---|---|
+| Dominica I classis | 6 | 6 | 4 | 4 | 4 | 4 | 4 | 0 | 4 | 4 |
+| Dominica II classis | 3 | 6 | 4 | 4 | 4 | 4 | 4 | 0 | 4 | 4 |
+| Dominica minor vel Vigilia Epiphaniæ | 3 | 3 | 4 | 4 | 4 | 4 | 4 | 0 | 4 | 4 |
+| Feria privileg., Vigilia I cl., vel dies infra Oct. I ord. | 6 | 6 | 0 | 4 | 4 | 4 | 0 | 2 | 0 | 4 |
+| Duplex I classis | 8 | 6 | 4 | 4 | 4 | 4 | 2 | 2 | 2 | 2 |
+| Duplex II classis | 5 | 8 | 4 | 4 | 4 | 4 | 2 | 4 | 4 | 4 |
+| Dies Octava II ordinis | 6 | 6 | 4 | 4 | 4 | 4 | 4 | 4 | 0 | 4 |
+| Dies Oct. Communis vel III ordinis | 3 | 3 | 7 | 4 | 4 | 4 | 4 | 4 | 4 | 4 |
+| Duplex majus | 3 | 3 | 3 | 7 | 4 | 4 | 4 | 4 | 4 | 4 |
+| Duplex minus | 3 | 3 | 3 | 3 | 7 | 4 | 4 | 4 | 4 | 4 |
+| Semiduplex | 3 | 3 | 3 | 3 | 3 | 7 | 4 | 4 | 4 | 4 |
+| Dies infra Octavam II ordinis | 3 | 6 | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 4 |
+| Dies infra Octavam III ordinis | 3 | 3 | 3 | 3 | 3 | 3 | 4 | 4 | 4 | 4 |
+| Dies infra Octavam communem | 1 | 1 | 3 | 3 | 3 | 3 | 7 | 4 | 4 | 4 |
+| Feria major non privilegiata | 3 | 3 | 3 | 3 | 3 | 3 | 3 | 2 | 4 | 4 |
+| Dies Octava simplex | 1 | 3 | 3 | 3 | 3 | 3 | 3 | 3 | 7 | 4 |
+| S. Maria in Sabbato | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 4 |
+
+**Legenda:**
+1. Officium de 1, nihil de 2.
+2. Officium de 2, nihil de 1.
+3. Officium de 1, com. de 2.
+4. Offi[c]ium de 2, com. de 1.
+5. Offic. de 1, translatio de 2.
+6. Offic. de 2, translatio de 1.
+7. Officium de nobiliori, commemoratio de alio.
+8. Officium de nobiliori, translatio de alio.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Altera Tabella — Quando concurrit...
+
+*(columnæ: 1 Dominica; 2 Duplex I classis; 3 Duplex II classis; 4 Dies Octava privilegiata; 5 Dies Octava Communis; 6 Duplex majus; 7 Duplex minus; 8 Semiduplex; 9 Dies infra Octavam privilegiatam; 10 Dies infra Octavam communem)*
+
+| cum... \ col. → | 1 | 2 | 3 | 4 | 5 | 6 | 7 | 8 | 9 | 10 |
+|---|---|---|---|---|---|---|---|---|---|---|
+| Dominica vel Vigilia Epiphaniæ | 0 | 4 | 4 | 4 | 3 | 3 | 3 | 3 | 3 | 3 |
+| Duplici I classis | 3 | 5 | 3 | 3 | 1 | 1 | 1 | 1 | 3 | 1 |
+| Duplici II classis | 3 | 4 | 5 | 3 | 3 | 3 | 3 | 1 | 3 | 1 |
+| Die Octava Duplici majori | 4 | 4 | 4 | 4 | 5 | 3 | 3 | 3 | 3 | 3 |
+| Duplici majori | 4 | 4 | 4 | 4 | 4 | 5 | 3 | 3 | 3 | 3 |
+| Duplici minori | 4 | 4 | 4 | 4 | 4 | 4 | 5 | 3 | 3 | 3 |
+| Semiduplici | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 5 | 3 | 3 |
+| Die infra Octavam privilegiatam | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 4 | 0 | 0 |
+| Die infra Octavam communem | 4 | 2 | 2 | 4 | 4 | 4 | 4 | 4 | 0 | 0 |
+| S. Maria in Sabbato | 0 | 2 | 2 | 4 | 4 | 4 | 4 | 4 | 0 | 0 |
+| Die Octava vel Festo Simplici | 4 | 2 | 2 | 4 | 4 | 4 | 4 | 4 | 4 | 4 |
+
+**Legenda:**
+1. Totum de sequenti, nihil de præcedenti.
+2. Totum de præcedenti, nihil de sequenti.
+3. Totum de sequenti, Commemoratio de præcedenti.
+4. Totum de præcedenti, Commemoratio de sequenti.
+5. Totum de nobiliori, Commemoratio de alio; in paritate, a Capitulo de sequenti, Commemoratio de præcedenti.
+
+---
+
+<!-- p. [unnumbered plate] -->
+### Notanda in Præcedentes Tabellas
+
+1. Quando in regulis alterutrius Tabellæ invenitur *Officium de Nobiliori,* vel *Totum de Nobiliori,* intelligi debet de illo ex duobus occurrentibus aut concurrentibus Festis vel Officiis, quod, ad normam tituli II præcedentium Rubricarum *De Festorum præstantia,* alteri præferri debeat.
+
+2. Dominicæ quævis assignationem perpetuam excludunt cujusvis Festi, excepta Dominica inter Circumcisionem et Epiphaniam, in qua fit Officium Ssmi Nominis Jesu; Dominica infra Octavam Epiphaniæ, in qua Festum agitur Sanctæ Familiæ Jesu, Mariæ, Joseph; Dominica I post Pentecosten, in qua celebratur Festum Ssmæ Trinitatis et Dominica ultima Octobris, in qua recolitur Festum D. N. Jesu Christi Regis.
+
+3. Vigiliæ communes, si in aliquam Dominicam inciderint, anticipantur Sabbato, juxta Rubricas, etiam sicubi a Duplici I classis occurrenti sua die perpetuo impeditæ fuerint; Vigiliæ vero privilegiatæ ipsa die Dominica celebrantur, ut propriis locis habetur.
+
+4. De Octavis quæ non sunt in Breviario Romano, nihil fit a die 17 ad 24 Decembris, a Feria IV Cinerum ad Dominicam in Albis, et a Vigilia Pentecostes ad Festum Ssmæ Trinitatis, semper inclusive.
+
+5. De quolibet Duplici majori vel minori aut Semiduplici, quod a Festo Duplici I classis primario Domini Ecclesiæ universalis impediatur, nihil fit; de Festo hujusmodi, a ceteris Duplicibus I classis impedito, nisi hoc fuerit Domini Festum in Dominica quavis aut in Vigilia Epiphaniæ occurrens, fit tantum Commemoratio ad Laudes.
+
+6. Item de die Octava Simplici vel Festo item Simplici ab occurrenti Duplici II classis impeditis, fit tantum ad Laudes, et insuper, de Festo, etiam ad Matutinum, si legi possit IX Lectio historica vel stricte propria.
+
+7. Festa tamen alicujus Nationis, Diœcesis, Ordinis, Instituti vel particularis Ecclesiæ propria, quæ in tota Natione, Diœcesi, Ordine vel Instituto aut in sua particulari Ecclesia perpetuo impediantur, si celebrentur sub ritu Duplici majori vel minori aut Semiduplici, reponuntur in proxima sequenti die, quæ libera sit a quolibet Officio Duplici, a Festo Semiduplici, a Vigiliis privilegiatis et ab Octavis II ordinis.
+
+8. Si duo Officia ejusdem Personæ eodem die occurrant, fit de nobiliori juxta Rubricas, et omittitur, nisi agatur de mysteriis Domini diversis, Commemoratio alterius. Idem servatur in concurrentia, et in paritate nobilitatis Vesperæ non dimidiantur, nisi pariter agatur de diversis Domini mysteriis, sed integræ dicuntur de præcedenti sine Commemoratione sequentis. Si tamen aliquod Festum Duplex majus aut minus vel Semiduplex vel Simplex occurrat infra aliquam Octavam communem ejusdem Personæ, vel in ipsa die Octava, etiam Simplici, Officium fit de Festo sub ritu et cum privilegiis ipsi Octavæ convenientibus, nisi illud sub altiori ritu sit celebrandum; et additur vel omittitur Commemoratio Octavæ, ut supra.
+
+9. Feria VI post Octavam Ascensionis in occurrentia et concurrentia, et Vigilia Pentecostes in concurrentia tantum, iisdem gaudent privilegiis ac dies infra Octavam communem; sed hæc illis præfertur.
+
+10. Festa Domini, et dies Octavæ item Domini quæ in universali Ecclesia sint privilegiatæ, in occurrentia accidentali et in concurrentia, Dominicæ minori præferuntur.
+
+11. De VII die infra aliquam Octavam nihil fit in II Vesperis, si die sequenti persolvendum sit Officium de die Octava; dicuntur autem integræ Vesperæ vel fit Commemoratio juxta Rubricas, si die sequenti nihil faciendum sit de die Octava, vel etiam si concurrens dies VII infra Octavam, juxta ordinem in titulo VII, num. 5, *De Commemorationibus,* præscriptum, præferri debeat diei Octavæ, in Officio nobiliori commemorandæ.
+
+12. Item nihil fit ad II Vesperas de Dominicis post Octavam Epiphaniæ vel Pentecostes, quæ Sabbato anticipari debuerint juxta Rubricas, quamvis Dominica sequens commemoranda tantum sit; eis tamen integra manent privilegia Dominicæ tam in occursu, quam in concursu ad I Vesperas.
+
+13. In Nativitate Domini et tribus sequentibus diebus, in Circumcisione, in Officio Ssmi Nominis Jesu, et in Epiphania ejusque die Octava, nulla fit Commemoratio de Dominica occurrenti, nec etiam, præterquam in II Vesperis sanctorum Innocentium et Epiphaniæ, et utrisque Vesperis diei Octavæ ejusdem, de Dominica concurrenti. Officium tamen Ssmi Nominis Jesu tam in occursu quam in concursu admittit Commemorationem de Vigilia Epiphaniæ. Circumcisio autem Domini præfertur in occurrentia cuilibet Festo, etiam Duplici I classis, et in concurrentia non admittit Commemorationem Officii præcedentis, quod non fuerit Duplex II classis. Dies vero Octava Corporis Christi cedit in occurrentia Festis Duplicibus I classis primariis Ecclesiæ universalis.
+
+14. Infra Octavam Nativitatis Domini, præterquam in Officio Circumcisionis, Vesperæ usque ad Capitulum dicuntur semper de Octava, sub ritu Officii in concurrentia nobilioris. A Capitulo autem ipsæ Vesperæ juxta normam consuetam fiunt de Officio ex concurrentibus nobiliori, exceptis II Vesperis S. Stephani Protomartyris, cum Commemoratione alterius, si hæc agenda sit juxta Rubricas; sed in paritate nobilitatis fiunt semper de Officio præcedenti, cum Commemoratione sequentis.
+
+15. De Feriis Adventus et Quadragesimæ, quando a nobiliori Officio impeditæ fuerint, semper fit Commemoratio ad Laudes et in Vesperis; de Feriis vero Quatuor Temporum et II Rogationum, fit ad Laudes tantum. Itemque ad Laudes tantum fit Commemoratio de Vigiliis communibus, quando agenda est, juxta superiorem tabellam. Et tam de Feria quam de Vigilia commemoratis, dummodo in eis idem atque in Officio currenti non habeatur Evangelium, dicitur IX Lectio de Homilia, præterquam de Feriis Adventus extra Quatuor Tempora.
+
+---

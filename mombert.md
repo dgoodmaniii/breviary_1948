@@ -3238,3 +3238,39 @@ These statements of the biographer of Charles require correction and comment in 
 [^hincmarremann]: Hincmar, Rem. Ann., 867. Mabillon, *Ann. Bened.* [Latin] II., 634, 648, 650, 667. Lup. ep. 25, Migne v. CXIX., 475.
 
 [^rotthrudcarmen]: "*Rotthrud carmen amat, mentis clarissima virgo, virgo decora satis et moribus inclita virgo.*" [Latin]—Angilb. Carm. 2, 43 sq.
+
+for he bestowed upon her the endearing nickname of *Columba* [Latin] (dove) and dedicated to her, in conjunction with her aunt Gisla, the commentary on the Gospel of St. John,[^alcepp136] which he wrote at their request.[^vitaalchibid] She died in 810, and all the world knew that Charles shed many tears for her, and that his forgiveness sweetened her death.
+
+[^alcepp136]: Alc. Epp. 136, 137, 158, 159, ed. Jaffé.
+
+[^vitaalchibid]: Vita Alch. ibid. p. 28.
+
+The princess Bertha also had a peculiar history. It is of record that her brother Charles was suitor for the hand of the daughter of Offa, King of Mercia, and that that monarch refused his consent unless the King of the Franks agreed to sanction the marriage of a Mercian prince and the Frankish princess Bertha. Charles indignantly rejected the proposal, and broke off all intercourse with Mercia.[^gestabbfontan] The royal maiden, though denied to a royal suitor, might favor the attentions of the poetic Angilbert, her senior in years, an abbot, and honored with the special confidence of her sire. The *auriculus* [Latin] ("intimate," "confidant") of Charles won her heart and they were married in private. It was a dreadful *mésalliance* [French] and the discovery a great shock to all concerned. Nevertheless it is believed that the king recognized and legitimated the union, and certain, that Hartnidus, and Nithardus, the historian, were its offspring. Nithardus himself narrates the fact, and the poetic husband of Bertha in one of his productions, written in a foreign land, adverts with tender feeling to the royal palace, and to his own house near by, where his sons play in the garden. How he spoke of Bertha is evident from the passage already presented,[^seep229] but it is difficult to reconcile the dates and the tradition of an alleged dissolution of their marriage by mutual consent. It is undoubtedly false that Bertha took the veil in 790, for in 799 she is foremost in the gayeties of court-life; she is at court in 814 at the time of her father's death, and appeared as late as 826 at the court of Louis in Soissons.[^hariulfchroncentul] Of Angil-
+
+[^gestabbfontan]: Gest. abb. Fontan. MG. SS. II., 291.
+
+[^seep229]: See p. 229.
+
+[^hariulfchroncentul]: Hariulf, Chron. Centul. in Achéry, Spicileg. ed. 2, II., 291. Angilberti Vita apud Mabill. I., 108 sqq.
+
+bert more remains to be said, and we pass on to what is known of the other sisters.
+
+The princess Gisla was by common consent the noblest and most virtuous of the daughters of Hildegard. Not a whisper is heard to dim her fair fame for goodness, piety, and the loftiest accomplishments of her age.
+
+A similar encomium is due to the princess Theodrada, the eldest daughter of Fastrada, who, though abbess of Argenteuil, lived at court and seems to have escaped the taint of its atmosphere.
+
+Her sister, princess Hiltrud, was less fortunate. She also was a titular abbess, but had a love-affair with count Odilo.
+
+Princess Rothild, the daughter of Maltegard, likewise abbess of Faremoutier, is also entitled to the benefit of the doubt, for the annals maintain an almost absolute silence concerning her.
+
+The same applies to Adaltrud, the daughter of Gersuinda.
+
+It would be wrong to stain these pages with the record of dark and unsubstantiated rumors, but that of the incident immediately after the death of Charles cannot be withheld.
+
+One of the first acts of Louis, preceding his arrival at Aix-la-Chapelle, was the appointment of four commissioners charged, among other things, with the duty of setting in order the imperial establishment, and stopping the scandal connected with the conduct of the princesses of the blood royal.
+
+Some of the courtiers implicated in it appeared before the commissioners as suppliants for mercy and obtained forgiveness; but a certain Hodoinus adopted the attitude of a rebel, and when two of the commissioners, Warnarius and his nephew Lantbertus, attempted his arrest, he drew his sword and killed Warnarius. Lantbertus slew the murderer on the spot, but was severely wounded in the encounter.
+
+Louis was exasperated and visited his indignation on Tullius, another lover; he spared his life, but had his eyes put out.
+
+This was followed by more radical measures. He applied

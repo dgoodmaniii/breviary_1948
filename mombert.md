@@ -3121,4 +3121,34 @@ This trial by combat, which used to be common in cases of doubt, gradually fell 
 
 [^synodfranconofurt]: Synod. Franconofurt. 794. Labbei Concil. ix. (I., 1), p. 103.
 
-Queen Fastrada died during the session of that council. Shortly before her decease she is mentioned as present at the death of a certain Hostlaicus, most probably by acci-
+Queen Fastrada died during the session of that council. Shortly before her decease she is mentioned as present at the death of a certain Hostlaicus, most probably by accident, although the circumstance is often adduced in illustration of her cruelty.[^rozierformules]
+
+[^rozierformules]: Rozière, *Formules* [French], I., 64, no. 41.
+
+Her death was regarded by the people as a providential bereavement. She was undoubtedly the best-hated woman of her time, and apparently beloved only by Charles.[^aboutthistime] Some, perhaps not without cause, see in her a convenient scapegoat.
+
+[^aboutthistime]: About this time, I mean during the last few years of her life, she was in delicate health (Ep. Car. 6, Jaffé). Among other ailings she was a martyr to toothache, and went to St. Goar where the saint cured her. In recognition of the deliverance Charles presented his cell with the Villa of Nasonia. Miracula S. Goar. 16 apud Mabillon A. S. o. s. Ben. ed. Venet. II., 279.
+
+Charles ordered a magnificent funeral in St. Alban's, Mayence. Her remains were interred in the crypt of the north aisle in front of the altar of the apostles. A sumptuous marble monument was set up near the arch of the same aisle; a parcel of land was given to St. Alban's, the revenue to be applied to the service of a daily mass for the salvation of her soul. Theodulf, bishop of Orleans, the most gifted poet of the age, was requested to compose an epitaph, and wrote one of only six lines, of great elegance, singular felicity, and surprising tact, considering the character and reputation of the queen. It ran as follows:
+
+"Here lie the glorious remains of Queen Fastrada, whom cold death snatched away in the bloom of life. Noble by birth, she was united in marriage to her mighty husband, and nobler still, she is now united to the King of Heaven. The better part of her soul, King Charles himself, she left behind, to whom a merciful God may grant long life."[^theodcarmmigne]
+
+[^theodcarmmigne]: Theod. Carm.—Migne, V., 514. Compare the last clause of this epitaph with that composed by Paulus Diaconus for Hildegard, presented before. Theodulf seems to echo his sentiment, and was his peer in the art of flattery.
+
+The mural tablet with this inscription remained in the church until the monastery was destroyed by fire, when some one less kindly disposed replaced it by another in the cathedral, to which possibly her remains also were removed after 1553, of this tenor:
+
+"Fastradana called the pious consort of Charles, and by Christ beloved, lies underneath this marble roof. She died in the year seven hundred and ninety-four, a number which the muse in vain tries to adapt to the metre. O pious King, whom the Virgin bore, grant that here she may repose, and that her spirit be heir of the fatherland, which refuses to bewail her departure."[^lecointeannaleccles]
+
+[^lecointeannaleccles]: Le Cointe, *Annal. Eccles. Franc.* [Latin], IV., 527.
+
+The words after the date have now been expunged, but the remainder may still be read in the cathedral.
+
+Everybody seems to have had his fling at the unfortunate queen, and even the Saxon poet is nastily malicious in comparing her influence over Charles to the incessant throb of an angry carbuncle.[^poetasaxo3792] She was the mother of Theodrada and Hiltrud, with whom we shall become better acquainted in a subsequent paragraph.
+
+[^poetasaxo3792]: Poeta Saxo., l. III. s a. 792.
+
+Charles was averse to prolonged widowhood, and soon[^irejectasunfounded] led to the altar the beautiful Liutgard, a noble, or most noble lady of Alemannian descent. She must have been very fascinating and winsome, for she stole the hearts of all who knew her, and was unquestionably the most popular and best loved of the wives of Charles. If the contemporary records uniformly paint Fastrada in colors of darkest hue, they as uniformly, and with singular cordiality, shed the richest and most glowing light on the picture of Liutgard. Her radiant presence at the royal hearth was only brief, for she died childless and universally regretted, June 4, 800, in the city of Tours, blessed with the ministrations of the saintly Alcuin, and was buried in the venerable sanctuary of St. Martin.[^annallaurisseinhal]
+
+[^irejectasunfounded]: I reject, as unfounded, certainly as unproven, *first* the insinuation that she had for years before her marriage stood in near relations to the king; *secondly*, that the marriage did not take place until between 796 and 799. The second point is clearly the consequence of the first. The solitary expression, in a poem: "Leutgardis pulchra virago" [Latin] ("Liutgard, the beautiful heroine") is not decisive; Theodulf may have meant by *virago* [Latin] a married woman, and Angilbert about the same time extols her as *pulcherrima conjux* [Latin] ("most beautiful spouse"). Einhard, *Vita Caroli* [Latin]. c. 18, says: *Defuncta Fastrada, Liutgardam Alemannam duxit* [Latin] ("Fastrada having died, he married Liutgard the Alemannian"); this I take to signify that soon after the death of F. the king married Liutgard. But see the controversy sketched in Abel-Simson, *l. c.* [Latin], II., p. 214 sq.
+
+[^annallaurisseinhal]: Annal. Lauriss., Einh., al.

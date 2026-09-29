@@ -3333,4 +3333,32 @@ Equestrian exercise, the hunt, and the bath were his favorite pastimes. The firs
 
 A large piece of forest, enclosed throughout with walls, and near the palace at Aix-la-Chapelle, was reserved as a park for game. Woodland, glade, and meadow, enlivened by the little stream of the Worm, made it a splendid preserve, in which game of every kind, especially deer, stags, and wild boar, were kept. It was the chosen scene of the royal hunt, of which a frequent participant and spectator has left a spirited description. He says:
 
-"A vast concourse of huntsmen and ladies including the princesses royal, indeed the whole court, await the signal for the start. Trained dogs and hounds are let loose; their yelping, howling, and barking fills the air; eager for the blood of their victims they tear through the thick underbrush and follow the scent. An animal is brought to cover, and the huntsmen surround the copse in which it has sought shelter. A wild boar bounds through the valley, pursued
+"A vast concourse of huntsmen and ladies including the princesses royal, indeed the whole court, await the signal for the start. Trained dogs and hounds are let loose; their yelping, howling, and barking fills the air; eager for the blood of their victims they tear through the thick underbrush and follow the scent. An animal is brought to cover, and the huntsmen surround the copse in which it has sought shelter. A wild boar bounds through the valley, pursued by the hounds; the sound of the dogs directs the hunters through the depth of the forest. One of the hounds flies with unerring instinct over the wild boar's track, without uttering a sound; others, athirst for blood, yell aloud, but misled by the scent, renew the pursuit; other canine eyes have sighted the beast and madly follow its course.
+
+"The chase grows exciting; the forest rings with the loud echoes of the wild din; the notes of the horn rouse and quicken the most savage instincts of the savage brutes and conduct them to where the infuriated boar shows its terrible tusks.
+
+"The rustling leaves drop from the shaken boughs; the boar escapes, bounds away from its pursuers up the steepest places, and terribly grunting, climbs the most inaccessible points of the rocky crest; at last, utterly exhausted with the effort, and unable to use its feet, sits panting on its haunches. The dogs have tasted its blood and felt its tusks; some are driven back; others, fiercer than the rest, are tossed bleeding into the air.
+
+"At that supreme moment the king arrives on the scene; fleeter than bird in its flight, he tears through the crowd, strikes the breast of the beast with his sword, and drives the cold blade home to the hilt. The wild boar falls and, the blood streaming forth from the fatal wound, expires, and its body rolls in the yellow sand.
+
+"The royal family, maidens and all, have witnessed the feat from a commanding point."[^carmenapudbouquet]
+
+[^carmenapudbouquet]: Carmen, etc., apud. Bouquet, V., 390.—Appendix, I.
+
+On another occasion Charles treated the Persian[^thatisambassadors] ambassadors to an *auerochs* [German] (*i. e.* [Latin], a buffalo) hunt; they were not very plucky, for the sight of the game was enough for them, and they incontinently left the park. Not so Charles, who knew not what fear was. Vaulting into the saddle, and urging his fleet charger, he bore down upon one of the fierce animals, drew his sword; but in the attempt of cutting off its
+
+[^thatisambassadors]: That is, the ambassadors of Harun al Raschid, who in the Annals and other contemporary authorities figures as "Aaron, King of the Persians." Annal. Einh, a. 801, 802, 807; Monach. Sangall. II., 8, al.
+
+head, missed the mark. The infuriated beast turned to the assault and with its horns tore the king's shoes, slightly grazed his legs, and then rushed into the thicket. The cavaliers surrounded him and would fain have torn off his shoes and dressed his wounds, but he forbade them.
+
+It so happened that count Isambart, against whom Irmingard, the queen of Louis of Aquitaine, for some cause unknown, had a grudge, pursued the auerochs, and hurling his javelin at it, sent the weapon between the throat and the shoulder. It pierced the heart, and the count took it still palpitating to the king. Charles, apparently ignoring the feat, bade the courtiers divide the body, rode home, and, sending for Irmingard, said to her: "What does the man deserve who saved me from the enemy that gave me this wound?" "Any and every kind of reward," replied the queen. Then Charles told her all, sent for the horns of the animal, and pledged the queen to intercede with her husband for his deliverer. Thus the lucky Isambart was restored to favor and amply rewarded.[^monachsangall4]
+
+[^monachsangall4]: Monach. Sangall., II.
+
+Besides the chase, bathing was an exercise in which Charles took great delight. In summer he loved to swim in the Rhine, or wherever he might be. He was an excellent swimmer; aptitude and practice had made him so perfect that none could surpass him in the art. He was also very fond of the hot water springs at Aix, and for that reason, it is said, built there the most famous of his palaces. He was wont to bathe not only with his sons but his nobles and friends, and occasionally invited the troop of his body-guard and satellites, so that sometimes as many as a hundred persons or more were his companions in the bath.[^einhvitacaroli22]
+
+[^einhvitacaroli22]: Einh. *Vita Caroli* [Latin], c. 22; Poeta Saxo., V., 321 sqq; Monach. Sangall. II., 15; Angilbert, Carm. 6, 106–111.
+
+Such modern pastimes as the theatre and the concert, perhaps also the opera, were not unknown at the court of Charles. Traces of spectacular displays are not wanting. Angilbert was passionately fond of them, and Alcuin denounced them as sinful;[^alcepp116] a capitulum forbidding actors, on
+
+[^alcepp116]: Alc. epp. 116, 177 ed. Jaffé.

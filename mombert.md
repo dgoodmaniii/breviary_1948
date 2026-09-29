@@ -3621,4 +3621,20 @@ The price of commodities; the stocking and planting of farms; the building of ho
 
 He was the most many-sided man intellectually in all Europe, and with all his marvellous powers, there lay in his relations to Alcuin the irresistible charm of unaffected docility, sincere attachment, reverential regard, and true modesty.
 
-He spoke Latin as fluently as German, and had a fair knowledge of Greek. Einhard says that "he spent much time and labor with Alcuin in the study of rhetoric, dialectics, and astronomy, learned arithmetic, and with eager curiosity and intelligent scrutiny applied himself to the investigation
+He spoke Latin as fluently as German, and had a fair knowledge of Greek. Einhard says that "he spent much time and labor with Alcuin in the study of rhetoric, dialectics, and astronomy, learned arithmetic, and with eager curiosity and intelligent scrutiny applied himself to the investigation of the motions of the heavenly bodies. He also tried to write, and used to keep tablets and blanks in bed under his pillow, that at leisure hours he might accustom his hand to form letters; however, as he did not begin his efforts in due season, but late in life, they met with ill-success.[^vitacaroli24d]
+
+[^vitacaroli24d]: Vita Caroli, c. 24.
+
+---
+
+#### CHAPTER X.
+
+##### FAMOUS MEN.—LITERATURE.—LIBRARIES.—ARCHITECTURE.—PUBLIC WORKS.
+
+*Adalhard.—Angilbert.—Einhard.—Theodulf.—Clement.—Peter of Pisa.—Paulus Diaconus.—Homiliarium.—Other distinguished men.—Schools.—Books.—Libraries.—Astronomy.—Grammar.—Names of the winds and the months.—Medical men.—Architecture.—Basilica and Palace at Aix-la-Chapelle.—Rhine-bridge at Mayence.—Canal-building.*
+
+Besides Alcuin other men of note, already mentioned by name, stood in near personal relations to Charles.
+
+Perhaps the oldest and most intimate of his friends was Adalhard, a son of count Bernhard, a grandson of Charles Martel, and cousin-german of Charles. Early in life he chose the monastic calling, and was abbot of Corbie, and founder of the abbey of Corvey in the Saxon country, where he died in 826. He wrote several works, but the most celebrated of them, his "Treatise of the Order and State of the Palace throughout the Frankish Realm," exists only in the reproduction of Hincmar, archbishop of Rheims. Charles consulted him on important matters and employed him in positions of the highest trust, such as imperial *missus* [Latin], administrator and *baiulus* [Latin] of Bernhard, King of Italy, etc. He was a man of singular purity and strength, and one of the brightest ornaments of this reign.
+
+Angilbert had been brought up with Charles and was essentially a man of the Court. His taste and habits were scholarly; much reading and culture, the gift of poetry, quick observation, and conversational power, made him a delightful companion. The king made him his *auriculus* [Latin], or privy councillor, and often singled him out as his representative on occasions requiring tact, good judgment, and statesmanship. The story of his love affair with the prin-

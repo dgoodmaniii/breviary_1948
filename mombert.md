@@ -3536,3 +3536,57 @@ Omitting the rest of this class of questions, a few of a miscellaneous character
 > P. You dreamt, master, I think; did you? A. Right, my son. Now hear another. I saw the dead bring forth the living, and the breath of the living devour the dead.
 >
 > P. By the friction of boughs fire is produced, which devours them. A. That is true. . . .
+
+After a number of similar puzzles the colloquy terminates as follows:
+
+> A. Do you know what *is*, and *is not*, at the same time? P. Nothing.
+>
+> A. How can a thing be and not be? P. It exists only in name, not in reality.
+>
+> A. What is a silent messenger? P. I hold one in my hand.
+>
+> A. What do you hold in your hand? P. My [*al.* thy] letter.
+>
+> A. Go, and be happy in the reading.[^alcuinioperamigne]
+
+[^alcuinioperamigne]: Alcuini Opera, Migne, CI., 975 sqq.
+
+This catechetical exercise illustrates the method of Alcuin's instruction of the young, while the conceits and pleasantries introduced doubtless shed light on the eminently social character of the proceedings in the Palace School. They prove among other things that eleven centuries ago there was as much humor and poor punning in vogue at Aix-la-Chapelle as in miscellaneous gatherings of modern times. They entered into the literary recreations of the Court, and it is pleasant to think of David, Homer, Flaccus, Nathanael, Lucia, Columba, and Ava, cracking jokes, and beguiling the tedious hours with such harmless and entertaining pursuits. Their perusal can hardly fail to raise a smile, but it should be borne in mind that in those days there was hardly any literature, and even the light literature of the age was drawn from occult sources, and familiar to only a few.
+
+It is probable that Dialogue was the distinctive feature of Alcuin's oral teaching; at any rate it characterized his instruction of the king, as appears from the subjoined example, in which Charles is introduced as pupil and Alcuin as his teacher.
+
+> Charles. Proceed now with your philosophic definitions of the virtues, and first of all define virtue.
+>
+> Alcuin. Virtue is a habit of the mind, an ornament of nature, a rule of life, and an ennobler of manners.
+>
+> Charles. How many parts does it contain?
+>
+> Alcuin. Four: prudence (wisdom), justice, fortitude, temperance.
+>
+> Charles. What is prudence?
+>
+> Alcuin. The knowledge of things and nature.
+>
+> Charles. How many parts does it contain?
+>
+> Alcuin. Three: memory, intelligence, and foresight (*providentia* [Latin]).
+>
+> Charles. Tell me their definitions also.
+>
+> Alcuin. Memory is the power of the mind which recalls the past; intelligence is the power by which it perceives the present; foresight is the power by which it foresees something future before it comes to pass.
+>
+> Charles. Explain the nature of justice.
+>
+> Alcuin. Justice is the habit of the mind which gives to everything the merit it deserves; it preserves the worship of God, the laws of man, and the equities of life.
+>
+> Charles. Unfold also the parts of justice.
+>
+> Alcuin. They spring from the law of nature, and the uses of custom.
+>
+> Charles. How from the law of nature?
+>
+> Alcuin. Because it comprises certain powers of nature, such as religion, piety, gratitude (*gratia* [Latin]), vindication, observance, and truth.
+>
+> Charles. Explain this more clearly, and one by one.
+>
+> Alcuin. Religion is the careful pondering of things pertaining to God, together with the ceremonial due to him. Piety is the loving discharge of what is due to kin, and to one's native land [*i. e.* [Latin], in modern phrase, patriotism]. Gratitude is the recollection of another's acts of friendship and kindness, and the disposition to reward them. Vindication is the effectual defence of what is right, and the effectual punishment or avengement of injury and wrong. Observance is the respectful and

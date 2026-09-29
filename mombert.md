@@ -3637,4 +3637,34 @@ Besides Alcuin other men of note, already mentioned by name, stood in near perso
 
 Perhaps the oldest and most intimate of his friends was Adalhard, a son of count Bernhard, a grandson of Charles Martel, and cousin-german of Charles. Early in life he chose the monastic calling, and was abbot of Corbie, and founder of the abbey of Corvey in the Saxon country, where he died in 826. He wrote several works, but the most celebrated of them, his "Treatise of the Order and State of the Palace throughout the Frankish Realm," exists only in the reproduction of Hincmar, archbishop of Rheims. Charles consulted him on important matters and employed him in positions of the highest trust, such as imperial *missus* [Latin], administrator and *baiulus* [Latin] of Bernhard, King of Italy, etc. He was a man of singular purity and strength, and one of the brightest ornaments of this reign.
 
-Angilbert had been brought up with Charles and was essentially a man of the Court. His taste and habits were scholarly; much reading and culture, the gift of poetry, quick observation, and conversational power, made him a delightful companion. The king made him his *auriculus* [Latin], or privy councillor, and often singled him out as his representative on occasions requiring tact, good judgment, and statesmanship. The story of his love affair with the prin-
+Angilbert had been brought up with Charles and was essentially a man of the Court. His taste and habits were scholarly; much reading and culture, the gift of poetry, quick observation, and conversational power, made him a delightful companion. The king made him his *auriculus* [Latin], or privy councillor, and often singled him out as his representative on occasions requiring tact, good judgment, and statesmanship. The story of his love affair with the princess Bertha has been told. His cordial relations to Charles remained undisturbed to the last, and, by a singular coincidence, the abbot of St. Riquier died in his monastery about the time when Charles breathed his last at Aix-la-Chapelle.
+
+Next to Alcuin, Einhard is believed, by some, to have been the most learned, and a very influential man at Court. A native of the Maingau, he was sent to school at Fulda; his bright ability attracted attention and led to his introduction, by the abbot, to Charles. He took an interest in him and placed him, as the companion of his own children, in the Palace School.
+
+He rose rapidly, and successively filled the positions of superintendent of public works, councillor, and notary, or private secretary to Charles. He enjoyed to a remarkable degree the confidence of his sovereign, and to his influence is ascribed the designation of Louis, King of Aquitaine, as the associate of Charles in the imperial throne.
+
+His biography is a masterpiece, constructed upon the model of the Life of Augustus by Suetonius. His portraiture is valuable both for what it states and suppresses; it was written in the next reign, and the fact that Louis was even more bountiful to him than his father, appears to be the true explanation of his vexatious silence and occasional perversions.
+
+He is generally credited with the authorship of the Annals, which are among the most valuable authorities for this portion of history and generally cited by his name; but a collection of "Epistles" as well as the "History of the Translation of the Relics of St. Marcellinus and St. Peter Martyr" are unquestionably products of his pen.[^wattenbachlc186]
+
+[^wattenbachlc186]: Wattenbach, *l. c.* [Latin] I., 186 sqq.
+
+He was abnormally small in stature, and all the contemporary writers at the Court allude to him, but in a pleasant spirit, as a "manikin." Theodulf, Alcuin, and Walafrid Strabo jest about it, rehearse his praise, and express surprise that so much power, wisdom, and excellence should be housed in so very small a dwelling.
+
+He was married to a certain Emma, or Imma, who is described in one of several worthless epitaphs at Seligenstadt, as the *legitimate* daughter of the great emperor Charles.[^theyarepublished]
+
+[^theyarepublished]: They are published in Weinken, *Eginhartus Illustratus* [Latin], pp. 16, 21.
+
+The well-known legend of Einhard and Imma rests upon the unsupported authority of the chronicle of the monastery of Lauresheim, an establishment endowed by Einhard. Had the writer been a contemporary, or possessed accurate information, his statements might be entitled to respect. But he wrote more than three centuries after the death of Einhard, introduced the name of Imma as that daughter of Charles who at one time was affianced to the emperor Constantine, and applied to her the part performed by the sister of Emperor Henry III., as told by William of Malmesbury in the Chronicle written about forty years before his own. This stamps the legend as purely fictitious; its mythical character is further apparent from the language in which Einhard refers to the daughters of Charles, which he would hardly have used if one of their number had been his wife,[^vitacaroli19b] and from the total silence of the lists as to the existence of a royal daughter who bore the name of Imma.[^seepassagerelating]
+
+[^vitacaroli19b]: Vita Caroli, c. 19.
+
+[^seepassagerelating]: See the passage relating to the legend in Bouquet, V., 383. It is rejected by Bouquet, Guizot, Teulet, and the best writers generally.
+
+It is impossible to determine if Imma was related to Charles or how, but there is no uncertainty whatsoever as to the affection in which the king held Einhard, or the intimacy of their relations.
+
+This is stated best in his own words.
+
+"To these reasons," he writes in the Prologue to his Life of Charles, "comes yet another, which in my opinion outweighs the rest, and of itself not only justifies, but necessarily compels me to write. I mean, the tender care bestowed upon me since my childhood, as well as the constant friendship with which both King Charles and his sons have favored me ever since I began to live at the Court.
+
+"I feel bound to him by so many tokens of kindness, that I must needs cherish for him, now that he is dead, the same

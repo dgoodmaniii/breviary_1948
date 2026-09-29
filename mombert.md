@@ -2950,3 +2950,33 @@ They likewise provide for the *weregeld* [German] of certain laics, the tenure a
 Connected with the Canons is the "League made by the bishops and abbots in Bavaria for deceased brethren."[^legiii461] It was a "Covenant of Death," or "Death League," much in vogue at the time, and reflecting the current belief as to the condition of the departed. In the event of a member of the League dying, his surviving brethren, being bishops or abbots, were bound to say for his benefit a hundred masses, or cause to be chanted a hundred psalms. Every bishop or abbot, moreover, was obliged to say himself, or cause one of his clergy to say, thirty additional masses for the same purpose. If the deceased was a presbyter or a monk, it was the duty of his bishop or abbot to cause a presbyter or a monk to say thirty masses, and chant the same number of psalms. The Bavarian Death League numbered nineteen members, six bishops and thirteen abbots; the bishops were the following: Manno (Neuburg), Alim (Seben), Virgilius (Salzburg), Wisurich (Passau), Sindpert (Ratisbon), Heres or Arbeo (Freising); and the abbots: Oportunus (Mondsee), Wolfpert (Niederaltaich), Adalpert (Tegernsee), Atto (Scharnitz-Schledorf), Uto (Illmünster), Landfrit (Benedictbeuern),
 
 [^legiii461]: Leg. III., 461.
+
+Alpuni (Sandau), Roadhart (Isana), Ernst (Oberaltaich), Reginpert (Mosburg), Wolchanhart (Osterhofen), Perahtcoz (Schliersee), and Sigidio (Weltenburg).[^simsonlc55]
+
+[^simsonlc55]: Simson, *l. c.* [Latin] 55 sq. and notes.
+
+This Death League, it is thought, is the beginning of the interesting and historically important *Verbrüderungsbuch* [German] of St. Peter's at Salzburg, that is, the book in which the names of all persons who joined the League were entered. The brothers, it seems, undertook to mention each other in their prayers while living, and to continue the pious remembrance after their decease. This obligation necessarily occasioned the practice of keeping accurate lists of all the members of the League, and as these rapidly multiplied, while the record was kept up for centuries, it is evident that this book is one of the most trustworthy authorities touching a great variety of topics and relations.[^vkarajan]
+
+[^vkarajan]: v. Karajan, *Verbrüderungsbuch von St. Peter in Salzburg* [German], Introduction I., sqq.—Herzberg-Fränkel, *Neues Archiv d. Geschichte für ältere deutsche Geschichtskunde* [German], XII., 53 sqq.
+
+The activity and zeal of Tassilo as a devout churchman appears from the part he took in the Translation of the Relics of St. Valentinus from Trent to Passau in 768, and of that of the Relics of St. Corbinianus from Mais in the Tyrol to the Church of St. Mary at Freising in 769.[^meichelbecklc71]
+
+[^meichelbecklc71]: Meichelbeck, *l. c.* [Latin] I.ᵃ 71, 73; I.ᵇ 18.
+
+Tassilo does not seem to have come in collision with the Bohemians and Moravians in the northeast, but responding to an appeal of the Sclavonian Carantanians, the occupants of Carinthia, Styria, and part of the Tyrol, for help against the Avars, he not only repelled that enemy, but brought the Carantanians themselves to a state of dependence, and, mainly through the missionary zeal of the aforesaid bishop Virgilius of Salzburg, established Christianity among them.[^deconversionebagoar]
+
+[^deconversionebagoar]: De Conversione Bagoar. et Carant. libellus, MG. SS. XI., 7 sq.
+
+The rapid progress of Christianity received, however, a rude check after the death of duke Chotimir, a man of strong Christian sympathies, when the adherents of paganism again came into power and expelled the Christian missionaries. For several years no priest labored among the Carantanians, but, thanks to the energy of Tassilo, Carinthia was reconquered, incorporated with Bavaria, and revisited by Christian missionaries. As early as 769 Tassilo donated to the abbot Atto of Scharnitz the place called India (Innichen), in the Puster valley on the Sclavonian frontier, for the express purpose of establishing there a monastery as the centre from which the infidel race of the Sclavonians might be led into the way of the truth.[^meichelbecklc38]
+
+[^meichelbecklc38]: Meichelbeck, *l. c.* [Latin] I.ᵇ 38, no. 22.
+
+The conversion of the Carantanians was chiefly carried on from Salzburg, and the mantle of Virgilius, who died in 784, fell on the shoulders of Arno, a remarkable man, already familiar to us, of whom more remains to be said in subsequent paragraphs.[^seeindex]
+
+[^seeindex]: See Index.
+
+About 777 Tassilo founded the monastery of Kremsmünster. According to an ecclesiastical legend the immediate occasion of that pious foundation was the accidental death of his son Gunthar on a boar hunt in the forest near the confluence of the Enns and the Danube. Gunthar having mortally wounded a she-boar, was assailed and fatally hurt by the infuriated animal. He fell and died on the spot; his dog discovered him, and a stag with luminous antlers indicated the place of his burial. Tassilo, says the legend, caused a wooden church to be erected over him, and that humble temple was the beginning of the monastery of Kremsmünster.[^mgss25641]
+
+[^mgss25641]: MG. SS. XXV., 641.
+
+The legend belongs to the fourteenth century, and sheds no light on the true history of the monastery. The original charter explicitly states that, impelled by the earnest desire of shunning the horrid abode of Satan, and of entering the blissful mansions of Christ, he had concluded to consecrate to the service of God a portion of those riches with which God had blessed him. As his ancestors of good memory had to the best of their ability consecrated their substance to God, built and endowed churches, founded monasteries and richly provided for them, so he had de-

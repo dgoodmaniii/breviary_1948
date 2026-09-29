@@ -3362,3 +3362,37 @@ Besides the chase, bathing was an exercise in which Charles took great delight. 
 Such modern pastimes as the theatre and the concert, perhaps also the opera, were not unknown at the court of Charles. Traces of spectacular displays are not wanting. Angilbert was passionately fond of them, and Alcuin denounced them as sinful;[^alcepp116] a capitulum forbidding actors, on
 
 [^alcepp116]: Alc. epp. 116, 177 ed. Jaffé.
+
+pain of corporal punishment and banishment, to appear on the stage in the costume of clerics, monks, or nuns, not only demonstrates the existence of theatrical performances, but shows the estimate in which players were held, the extent to which clerical influence shaped public sentiment, and that the exhibitions were not miracle plays.[^siquisexscenicis]
+
+[^siquisexscenicis]: "*Si quis ex scenicis vestem sacerdotalem aut monasticam, vel mulieris religiosæ vel qualicunque ecclesiastico statu similem indutus fuerit, corporali poenæ subsistat, et exilio tradatur.*" [Latin] Capitul. l. V. c. 2, apud Heineccius.
+
+Musical diversion and exercise and buffoonery may lurk in the *acroama* [Latin] or dinner accompaniment, for the term designates anything heard with pleasure, such as jocose recitations of punsters or court wits, festal or ludicrous compositions, musical and even mimic exhibitions.[^ducanges]
+
+[^ducanges]: Ducange, s. v. *acroama* [Latin] sq.
+
+The regular institution of religious readings may have been relished by the clerics present, but it stands to reason that the literary productions or conceits of members of the Palace School, although writ in Latin, commanded better attention by the general company, while the recitation of old heroic and national songs, in use among the several nationalities merged in the Frankish empire, and especially in vogue with the soldiers as march-songs, was probably the most popular of such prandial accompaniments.
+
+It is known that Charles was much interested in their collection, and their reduction to writing was probably the beginning of the heroic and romance literature of a later age.
+
+---
+
+#### CHAPTER IX.
+
+##### THE PALACE SCHOOL.—CHARLES AND ALCUIN.
+
+*Alcuin.—The Palace School.—Pseudonyms.—Colloquies between Alcuin and Pepin, and Alcuin and Charles.—Culture of Charles.*
+
+Perhaps the least roundabout way of solving the question of the intellectual ability and culture of Charles is to dive into *medias res* [Latin] and catch him, as it were, in the Palace School, which in the early years of his reign was peripatetic, that is, it went with him wherever he went.
+
+Its head, its life and soul, was Alcuin, doubtless the ablest and best informed man of his age, and next to Charles the most remarkable.
+
+His history, for the purpose in hand, may be told in a few paragraphs. He was born at York in 735, the year in which the venerable Bede died, of noble parentage, and at an early age entered the monastery school conducted by archbishop Egbert, and Aelbert. The former taught him the theology of the New Testament, the latter science and General Literature.
+
+The secular course comprised Grammar, Rhetoric, Jurisprudence, Poetry, Astronomy, Physics, and the Explanation of the Old Testament.[^alcuinpoemadepontif]
+
+[^alcuinpoemadepontif]: Alcuin, *Poema de Pontif. et Sanct. Eccl. Ebor.* [Latin] v. 1431 sqq.
+
+At the age of about twenty he accompanied his master to France and Italy, and upon his elevation to the episcopate, succeeded him in the school at York.
+
+The archbishop died in 780, and Eanbald, his successor, sent Alcuin to Rome to obtain his pallium. On that journey he was presented to Charles at Parma (in 781), and invited by him to settle in his dominions for the purpose of organizing the schools of his empire. This led to his removal to

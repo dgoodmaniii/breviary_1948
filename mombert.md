@@ -3482,3 +3482,57 @@ From a number of questions on natural science, we select these:
 > P. What is light? A. The torch of all things.
 >
 > P. What is day? A. An incitement to work.
+>
+> P. What is the sun? A. The splendor of the universe, the beauty of the sky, the glory of day, the distributor of the hours.
+>
+> P. What is the moon? A. The eye of night, the dispenser of dew, the prophet of storms.
+>
+> P. What are the stars? A. The pictures of the roof of the heavens, the guides of sailors, the ornament of night.
+>
+> P. What is rain? A. The reservoir of the earth, the mother of the fruits.
+>
+> P. What is fog? A. Night in day, a labor of the eyes.
+>
+> P. What is wind? A. The disturbance of the air, the commotion of the waters, the dryness of the earth.
+>
+> P. What is the earth? A. The mother of all that grows, the nourisher of all that lives, the barn of life, an omnivorous gulf.
+>
+> P. What is the sea? A. The path of the daring, the frontier of land, the divider of continents, the hostelry of rivers, the fountain of rain, a refuge in peril, a treat in pleasure.
+>
+> P. What is frost? A. A persecutor of plants, a destroyer of leaves, a fetter of the earth, a fountain of water.
+>
+> P. What is snow? A. Dry water.
+>
+> P. What is winter? A. The exile of summer.
+>
+> P. What is spring? A. The painter of the earth.
+>
+> P. What is summer? A. The reclothing of the earth, the maturer of the fruits.
+>
+> P. What is autumn? A. The barn of the year.
+
+Omitting the rest of this class of questions, a few of a miscellaneous character are now in place.
+
+> P. What makes bitter sweet? A. Hunger.
+>
+> P. What is it that men never tire of? A. Gain.
+>
+> P. What is the dream of the waking? A. Hope.
+>
+> P. What is hope? A. The refreshment of labor (a doubtful event).
+>
+> P. What is friendship? A. Similarity of mind.
+>
+> P. What is faith? A. The certainty of things unknown and wonderful.
+>
+> P. What is wonderful? A. I lately saw a man stand and a dead man walk who never existed.
+>
+> P. How can this be? Please explain. A. It was an image in the water.
+>
+> P. Why did I not understand this by myself, considering that I have often seen such a man? A. Because you are a good young man, and quick of perception, I shall speak to you of other wonderful things. Try, if you can, to find them out by yourself.
+>
+> P. I will try, but if I fail, please correct me. A. Rest assured that I will do as you desire. A person unknown to me has spoken to me without tongue or voice; he never existed before, does not exist now, and never will exist hereafter; I never heard nor saw him.
+>
+> P. You dreamt, master, I think; did you? A. Right, my son. Now hear another. I saw the dead bring forth the living, and the breath of the living devour the dead.
+>
+> P. By the friction of boughs fire is produced, which devours them. A. That is true. . . .

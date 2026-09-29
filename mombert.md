@@ -3395,4 +3395,32 @@ The secular course comprised Grammar, Rhetoric, Jurisprudence, Poetry, Astronomy
 
 At the age of about twenty he accompanied his master to France and Italy, and upon his elevation to the episcopate, succeeded him in the school at York.
 
-The archbishop died in 780, and Eanbald, his successor, sent Alcuin to Rome to obtain his pallium. On that journey he was presented to Charles at Parma (in 781), and invited by him to settle in his dominions for the purpose of organizing the schools of his empire. This led to his removal to
+The archbishop died in 780, and Eanbald, his successor, sent Alcuin to Rome to obtain his pallium. On that journey he was presented to Charles at Parma (in 781), and invited by him to settle in his dominions for the purpose of organizing the schools of his empire. This led to his removal to the Frankish court, and a residence of eight years. Into that period, say from 782–790,[^hispupilswizo] falls the establishment of the Palace School, and other scholastic institutions. This appointment was not permanent, and the necessities of the Church in his own country induced his return.
+
+[^hispupilswizo]: His pupils Wizo (Candidus), Fridugisus (Nathanael), and Sigulf (Vetulus), all men of parts, accompanied him.
+
+The turbulent condition of England, however, made him long for the more genial atmosphere of Francia, and entertain the brilliant offers of Charles, who, in due course, conferred upon him the rich enjoyment of the abbeys of Ferrières, St. Loup, St. Josse-sur-Mer, and St. Martin at Tours.
+
+The last of these he chose as his permanent home, and established there the model school of all conventual institutions. There he lived and taught, there he wrote, dreamed, and revised the Scriptures; there he died in 804, and was buried by the side of St. Martin.[^vitaalcuiniauct]
+
+[^vitaalcuiniauct]: Vita Alcuini auct. anonymo, prefixed to his works; and Lorenz, *Alcuin* [German].
+
+His relations to Charles were intimate, cordial, and confidential. One can hardly err in ascribing to him almost all the theological documents and writings interblended with the political growth and development of the Frankish empire in that reign; the theology of Charles; the theology, and probably much of the jurisprudence of the Capitularies; to his influence must be traced some of the enlightened views of Charles; the mercy, the lofty aims, and the ethical apothegms, so remarkable in the life and speech of that remarkable monarch.
+
+Of the works of Alcuin extant we refer to his epistles, so often mentioned and cited in different portions of this volume; his theological treatises on exegetical and dogmatical topics; his liturgical, hagiographic, and ethical essays; a volume of poems, and a compend on education touching grammar, orthography, dialectics, and astronomy. Of these he is known to be the author, but there are a number of others besides which are ascribed to him.
+
+He influenced his age, by his writings, his teaching, and the force of his virtuous example, and conferred a lasting benefit on mankind at a time when darkness covered the mind of the world and thick darkness the liberal arts.
+
+He even subjected the corrupt text of the Latin Scriptures to a remarkable recension, and taking all in all, the world has reason to thank God for sending Alcuin to Charles. In many respects he was his good angel; probably the purest, doubtless the most able, affectionate, and thoughtful of his advisers.
+
+A synopsis of his letters to the king, presented elsewhere, sheds light on their intellectual and personal intercourse.[^seeappendixd]
+
+[^seeappendixd]: See Appendix, D.
+
+A glance at the famous Palace School is now in order. Such a school had always—from time immemorial—formed part of the Frankish Court,[^seeleonmaitre] but Charles infused new spirit and life into it.
+
+[^seeleonmaitre]: See Léon Maitre, *Les Écoles piscopales* [French], p. 34 sqq; cf. Sohm, *Die Fränkische Reichs-und Gerichtsverfassung* [German], p. 342.
+
+His own children and those of the court population, as well as himself, older members of his family, and the courtiers generally are named among the pupils. The children, of course, received ordinary and extraordinary instruction; the older pupils, however, appear to have pursued less formal and more discursive studies. Among the former we can mention by name the royal children, and among the latter Charles, Gisla the abbess of Chelles, the abbot Adalhard and his sister Gundrada; the famous Angilbert, the queen Liutgard, the archbishops of Mayence and Salzburg, the bishop of Orleans, Einhard, and others. These illustrious personages, presumably under the predominating influence of Alcuin, agreed to form an academy or literary club which met at stated times for literary, scientific, and social intercourse. They interchanged poetic epistles, discussed literary and scientific topics, and even brought in conundrums and puzzles.[^wattenbachlc] The members of the coterie dropped their true names, and assumed pseudonyms of pagan, profane, and sacred origin. Charles figures as *David* [Latin],
+
+[^wattenbachlc]: Wattenbach, *l. c.* [Latin], p. 147; Oebeke, *De Academia Caroli Magni* [Latin].

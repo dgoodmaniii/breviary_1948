@@ -3424,3 +3424,61 @@ A glance at the famous Palace School is now in order. Such a school had alwaysâ€
 His own children and those of the court population, as well as himself, older members of his family, and the courtiers generally are named among the pupils. The children, of course, received ordinary and extraordinary instruction; the older pupils, however, appear to have pursued less formal and more discursive studies. Among the former we can mention by name the royal children, and among the latter Charles, Gisla the abbess of Chelles, the abbot Adalhard and his sister Gundrada; the famous Angilbert, the queen Liutgard, the archbishops of Mayence and Salzburg, the bishop of Orleans, Einhard, and others. These illustrious personages, presumably under the predominating influence of Alcuin, agreed to form an academy or literary club which met at stated times for literary, scientific, and social intercourse. They interchanged poetic epistles, discussed literary and scientific topics, and even brought in conundrums and puzzles.[^wattenbachlc] The members of the coterie dropped their true names, and assumed pseudonyms of pagan, profane, and sacred origin. Charles figures as *David* [Latin],
 
 [^wattenbachlc]: Wattenbach, *l. c.* [Latin], p. 147; Oebeke, *De Academia Caroli Magni* [Latin].
+
+his sister Gisla, as *Lucia* [Latin], and his daughter, her namesake, as *Delia* [Latin]; Rotrud was called *Columba* [Latin], the queen Liutgard *Ava* [Latin], and the aforesaid Gundrada *Eulalia* [Latin]; Alcuin bore the name of *Flaccus* [Latin], Angilbert that of *Homer* [Latin], and Theodulf of Orleans that of *Pindar* [Latin]; the archbishop of Mayence answered to the call of *DamÅ“tas* [Latin], and the bishop of Sens to that of *Samuel* [Latin]; while Audulf the seneschal, and Magenfrid the chamberlain, bore the idyllic nicknames of *Menalcas* [Latin] and *Thyrsis* [Latin].
+
+These curious pseudonyms appear to have been chosen, at least in some instances, from a supposed resemblance on the part of the several members of the association to famous personages in antiquity, real or fictitious. Thus Einhard, who held the post of superintendent of public works, was dubbed *Beseleel* [Latin], after the skilful architect of the Tabernacle; but sometimes the meaning of a common name suggested a more poetic form, as in the case of Witto, or Wizo, signifying white, who became known as *Candidus* [Latin], and in that of Arno, signifying eagle, who received the name of *Aquila* [Latin]. The whole nomenclature was perhaps originally only a pleasantry of Alcuin's, who gravely justified the change of name on evangelical authority; the practice was kept up for many years, and as late as 836 the abbot Wala of Corbie appears in the guise of *Arsenius* [Latin] and *Jeremiah* [Latin], and in 837, Amalarius, the priest-headmaster of the Palace School, in that of *Symphosius* [Latin].
+
+An entertaining specimen of catechetical instruction drawn up by Alcuin for Pepin, and, presumably, other of his more youthful hearers, is here presented. It is taken from *The Disputation of Pepin, the most noble and royal youth, with Albinus* [another nickname for Alcuin] *the pedagogue* [Latin], and we add, that Pepin was then about sixteen years old.
+
+> P. What is writing? A. The custodian of history.
+>
+> P. What is speech? A. The interpreter of the soul.
+>
+> P. What produces speech? A. The tongue.
+>
+> P. What is the tongue? A. The whip of the air.
+>
+> P. What is air? A. The guardian of life.
+>
+> P. What is life? A. The joy of the good, the sorrow of the evil, the expectation of death.
+>
+> P. What is death? A. An inevitable event, an uncertain journey, a subject of weeping to the living, the fulfilment of wills, the thief of men.
+>
+> P. What is man? A. The slave of death, a transient traveller, a host in his dwelling.
+>
+> P. What is man like? A. Like a fruit-tree.
+>
+> P. How is man placed? A. Like a lantern exposed to the wind.
+>
+> P. Where is he placed? A. Between six walls.
+>
+> P. Which are they? A. Above, below; before, behind; right, left. . . .
+>
+> P. To how many changes is he liable? A. To six.
+>
+> P. Which are they? A. Hunger and satiety; rest and work; waking and sleeping.
+>
+> P. What is sleep? A. The image of death.
+>
+> P. What is the liberty of man? A. Innocence.
+>
+> P. What is the head? A. The top of the body.
+>
+> P. What is the body? A. The domicile of the soul.
+
+Then follow twenty-six questions on the different parts of the body, of which a few may suffice.
+
+> P. What is the beard? A. The distinction of sex, the honor of age.
+>
+> P. What is the mouth? A. The nourisher of the body.
+>
+> P. What is the stomach? A. The cook of food.
+>
+> P. What are the feet? A. A movable foundation.
+
+From a number of questions on natural science, we select these:
+
+> P. What is light? A. The torch of all things.
+>
+> P. What is day? A. An incitement to work.

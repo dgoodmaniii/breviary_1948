@@ -3273,4 +3273,36 @@ Some of the courtiers implicated in it appeared before the commissioners as supp
 
 Louis was exasperated and visited his indignation on Tullius, another lover; he spared his life, but had his eyes put out.
 
-This was followed by more radical measures. He applied
+This was followed by more radical measures. He applied himself to the conscientious execution of his father's will, and then commanded all females, who on various pretences had taken up their abode in the palace, to leave it forthwith; only very few were permitted to remain in the service of the court.
+
+As for his sisters, he required them to withdraw to the places which Charles had assigned to them, and made provision for those who had not been thus remembered. But all went to where they were bidden. The language of the biographer of Louis is most sweeping, for he excludes not one of the sisters.[^vitahludpii]
+
+[^vitahludpii]: Vita Hlud. Pii, apud Bouquet, VI., 97.
+
+Such being the family of Charles, a few facts of its daily life and habits may not be out of place.
+
+Charles disliked extravagance and ostentation.
+
+His meals were simple, for "he was temperate in eating, and especially in drinking, since he abominated drunkenness in anybody, much more in himself, and those of his household; but he could not easily abstain from food, and often complained that fasts injured his health."[^vitacaroli24]
+
+[^vitacaroli24]: Vita Caroli, c. 24.
+
+His large frame, robust health, and plentiful exercise induced a state of chronic appetite, which abhorred fasting. An excellent churchman, he held that the Lenten fast was indispensable to the salvation of others, and we have seen that the poor Saxons, who dared to break it in the matter of meat, lost their heads. He doubtless disgusted the army with General Orders promulgated upon the occasion of the Frankish victory over the Avars, enjoining a three days' abstinence from meat and wine, although we learn that provision was made for those who, like himself, could not abstain, in the purchase of the necessary dispensation.[^epistadfastr]
+
+[^epistadfastr]: Epist. ad Fastr., Bouquet, V., 623.
+
+In his own case he was wont during Lent after Mass and Vespers had been said to dine at the eighth hour of the day, because, according to the Monk, he did not in doing so break the Rule, for he took nothing from that hour until the same hour on the following day, "according to the precept of the Lord."
+
+A certain bishop, more severe than wise, undertaking to censure the royal practice, overshot the mark. The king humbly received the correction, and suppressing his indignation said to the ecclesiastic: "You have well spoken, sir bishop, but I now desire you to take your dinner after the servants of the court have had theirs."
+
+The ninth hour, that is 3 P.M., it is proper to add, was the hour of the day when dinner might be taken, and that in the Middle Ages, the canonical hour for Vespers was 4 P.M., or later. The apparent contradiction that Charles, according to the Monk, dined after Vespers, may be explained on the supposition that in order to satisfy his conscience, he caused Vespers to be said for himself before 2 P.M. A French writer calls the arrangement, if it took place, *une tricherie* [French] ("a cheat"), and seems to hit the nail on the head.
+
+But to continue the story. Charles sat down to his meal, and was waited upon by kings (?), princes, dukes, and such exalted personages; at the close of his dinner the said kings, princes, and dukes had theirs, and were served by counts and prefects; then the counts and prefects dined, and were followed in succession by those next in rank, the military and palace functionaries, the guards, and lastly by the servants, whose turn came not until the middle of the night. After them the critical bishop was served.
+
+When Lent was nearly over, and the aforesaid bishop was still smarting under the imperial castigation, Charles said to him, not without a spice of humorous malice, "Look here, sir bishop, I think you have found out that if in Lent I dine *before* Vespers, I do so on prudential grounds rather than because I cannot abstain."[^monachsangall3]
+
+[^monachsangall3]: Monach. Sangall.—Bouquet, V., 111.
+
+The Monk's anecdote depicts the palace usage as to the order in which those connected with the establishment sat down to their meals.
+
+The daily dinner served to the king consisted of only four courses besides the roast, mostly of game, which the hunters brought in on the spit; this was the king's favorite dish.

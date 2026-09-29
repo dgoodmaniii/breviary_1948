@@ -3152,3 +3152,31 @@ Charles was averse to prolonged widowhood, and soon[^irejectasunfounded] led to 
 [^irejectasunfounded]: I reject, as unfounded, certainly as unproven, *first* the insinuation that she had for years before her marriage stood in near relations to the king; *secondly*, that the marriage did not take place until between 796 and 799. The second point is clearly the consequence of the first. The solitary expression, in a poem: "Leutgardis pulchra virago" [Latin] ("Liutgard, the beautiful heroine") is not decisive; Theodulf may have meant by *virago* [Latin] a married woman, and Angilbert about the same time extols her as *pulcherrima conjux* [Latin] ("most beautiful spouse"). Einhard, *Vita Caroli* [Latin]. c. 18, says: *Defuncta Fastrada, Liutgardam Alemannam duxit* [Latin] ("Fastrada having died, he married Liutgard the Alemannian"); this I take to signify that soon after the death of F. the king married Liutgard. But see the controversy sketched in Abel-Simson, *l. c.* [Latin], II., p. 214 sq.
 
 [^annallaurisseinhal]: Annal. Lauriss., Einh., al.
+
+What she was, in appearance, character, and conversation, is fully disclosed in the notices here presented; the first was written by the bishop of Orleans during her life. "The beautiful lady Leutgarda displays the riches of her piety in the shining frame of a cultured mind. The nobility and the people everywhere, confess that the brilliant beauty of her accomplishments is eclipsed by the more dazzling beauty of her virtues. Prodigal in her charities, benignant in disposition, and most sweet of speech, her life is a blessing to all, an injury to none.[^thisseemstoreflect] An ardent and successful student she stores in a retentive memory the harvest of her toil."[^theodcarmiii]
+
+[^thisseemstoreflect]: This seems to reflect on her predecessor.
+
+[^theodcarmiii]: Theod. Carm. III., 1, ed. Sismond.
+
+Thus he wrote of her; the lines which follow he wrote to her:
+
+"O potent queen, the glory of the great king and of the people, the light and blooming ornament of the Church. May the Father, throned on high, grant long life to you, and thus bless the people, and the Church of God. You are the light and splendor, the dazzling ornament of all the realm, gracing your beauty with the riches of a godly life. Companion of the pious king, you are his well-merited reward, a precious help-mate causing his name to be lauded to the sky. Your outward beauty yields the palm to that within, but I do not venture to say which is first. For beautiful is the burden of your speech; more beautiful your acts, but you yourself are conqueror of both. May God, who gave you the will to do so much good, grant you power to bring it to good effect, and bless you world without end."[^idemeddummler]
+
+[^idemeddummler]: Idem, ed. Dümmler, XXXI., 522
+
+Similar is the testimony of Alcuin. Writing of her to others he calls her "his daughter, religious, and devoted to God;" "having an earnest desire to benefit the servants of God and the Church;" and addressing her, exclaims: "Verily, most noble lady, you ever set the example of pure morality to the people, and of most holy conversation before God, causing the tongue of all to rehearse your praise, and their hearts turn to you in love."[^alcepp53]
+
+[^alcepp53]: Alc. Epp. 53, 131, 89 (Jaffé).
+
+One of the epistles of Alcuin is believed to be a letter of condolence to Charles on the death of this queen. It should be remembered that Alcuin was at Tours at the time of its occurrence, and we may regard the document either as a letter of condolence, or a funeral address, possibly adapted to the occasion. He says:
+
+"I cannot lament the felicity of one who has finished the thorny path of earth and winged her way to Him who made her. For agreeably to the appointment of our first condemnation this is the condition of our frailty: we are born to die, and we die to live. Is it not better to enter upon life than upon death?
+
+"It is said that one whom others sought to comfort concerning the death of his son, replied, 'I knew that I was born mortal.'[^allusiontosaying] Why should we bewail that which we cannot avoid? Time often soothes our sorrow better than reason.
+
+[^allusiontosaying]: Allusion to the saying of the philosopher Anaxagoras on the death of his son.
+
+"Let the gifts of our love follow our loved ones. Let us offer the gift of our salvation for them. Let us be merciful that we may obtain mercy. Whatever we do in faith for them, will profit ourselves.
+
+"O Lord God Jesus, gentle and merciful, have mercy upon her whom thou hast taken away from us. Hear us through the Medicine for our wounds [Jesus Christ], who hung upon the Cross, and sitting at thy right hand, now intercedes for us. For I know thy mercy, who desirest that all men should be saved. Remit unto her such sins as she may have contracted after the water of salvation [*i. e.* [Latin], after baptism]. Remit them, O Lord, we pray, remit them. Enter not into judgment with her. Let mercy exalt itself above judgment. For all thy words are true, even the mercy thou didst promise unto the merciful; that such as they were, so wilt thou give unto them. Thou who art merciful unto the merciful, O Lord, have mercy upon thy creature; that thy creature may laud and evermore extol thy mercy; and the soul that triumphs eternally, will say world with-

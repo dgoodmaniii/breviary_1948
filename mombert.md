@@ -3589,4 +3589,36 @@ It is probable that Dialogue was the distinctive feature of Alcuin's oral teachi
 >
 > Charles. Explain this more clearly, and one by one.
 >
-> Alcuin. Religion is the careful pondering of things pertaining to God, together with the ceremonial due to him. Piety is the loving discharge of what is due to kin, and to one's native land [*i. e.* [Latin], in modern phrase, patriotism]. Gratitude is the recollection of another's acts of friendship and kindness, and the disposition to reward them. Vindication is the effectual defence of what is right, and the effectual punishment or avengement of injury and wrong. Observance is the respectful and
+> Alcuin. Religion is the careful pondering of things pertaining to God, together with the ceremonial due to him. Piety is the loving discharge of what is due to kin, and to one's native land [*i. e.* [Latin], in modern phrase, patriotism]. Gratitude is the recollection of another's acts of friendship and kindness, and the disposition to reward them. Vindication is the effectual defence of what is right, and the effectual punishment or avengement of injury and wrong. Observance is the respectful and honorable recognition of the dignity of superiors. Truth is the power whereby things present, past and future are declared.
+>
+> Charles. How is justice subserved by the use of custom?
+>
+> Alcuin. By pact or agreement; by parity, *i. e.* [Latin], equity; by judgment; and by law.
+>
+> Charles. I ask also for more information on these points.
+>
+> Alcuin. A pact is an agreement reached by mutual consent. Parity is observing equity or impartiality to all men. Judgment is a decision rendered by some great man, or established by the sentence of a plurality. Law is right set forth for the whole people, which all are bound to guard and observe.
+
+The remainder is omitted to make room for the concluding part of the dialogue.
+
+> Charles. . . . Master, you predict some great and truly blessed man.
+>
+> Alcuin. May God make you great, O lord my king, and truly blessed; may He grant that in the four-span chariot of the virtues, of which we have conversed, you may, unhurt by this wicked world, wing your way to the citadel of heaven.
+>
+> Charles. God grant that your prediction may come to pass.
+>
+> Alcuin. I trust that this discussion, which began in the ever-changing whirl of ordinary conversation, may have such a blessed consummation of everlasting stability, that no man may charge us with having only indulged in useless disputings by the way.
+>
+> Charles. Could any one really interested in the pursuit and investigation of matters so important to society at large, and truly desirous of practicing such excellent virtues, have it in his heart to hazard the daring assertion that our discussion has been in vain? For myself I frankly confess that love of knowledge only has prompted my questions; and I thank you for your kindness in answering them. I highly value the affectionate candor of your replies, and feel convinced that they will be most profitable to all who without prejudice or the blot of envy may sit down and read them.[^alcuinidial]
+
+[^alcuinidial]: Alcuini Dial. de Rhetor. et Virtut. Migne, CI., 944 sqq.—Literature on the Palace School.—Wattenbach, *Deutschlands Geschichtsquellen im Mittelalter* [German], 5 ed., I., 142 sqq.; Mullinger, *The Schools of Charles the Great and the Restoration of Education in the Ninth Century* [English], London, 1877; Théry, *L'École et l'Académie Palatines* [French]. Alcuin. Amiens, 1878.
+
+Thus Charles spoke and thought; and this brief dialogue both marks the man in at least one grand and unusual element of his greatness, and to some extent sheds light on at least one prolific source of his power.
+
+He was ever learning, and fond of learning; no subject came amiss to him; everything from the most commonplace every-day occurrence to the profoundest philosophical and theological inquiries interested him.
+
+The price of commodities; the stocking and planting of farms; the building of houses, churches, palaces, bridges, fortresses, ships, and canals; the course of the stars; the text of the Scriptures; the appointment of schools; the sallies of wit; the hair-splitting subtleties of metaphysics; the unknown depths of theology; the origins of law; the reason of usage in the manner and life of the nations; their traditions in poetry, legend, and song; the mysterious framework of liturgical forms; musical notation; the Gregorian chant; the etymology of words; the study of languages; the flexion of verbs, and many more topics.
+
+He was the most many-sided man intellectually in all Europe, and with all his marvellous powers, there lay in his relations to Alcuin the irresistible charm of unaffected docility, sincere attachment, reverential regard, and true modesty.
+
+He spoke Latin as fluently as German, and had a fair knowledge of Greek. Einhard says that "he spent much time and labor with Alcuin in the study of rhetoric, dialectics, and astronomy, learned arithmetic, and with eager curiosity and intelligent scrutiny applied himself to the investigation

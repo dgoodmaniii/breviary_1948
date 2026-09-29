@@ -3179,4 +3179,32 @@ One of the epistles of Alcuin is believed to be a letter of condolence to Charle
 
 "Let the gifts of our love follow our loved ones. Let us offer the gift of our salvation for them. Let us be merciful that we may obtain mercy. Whatever we do in faith for them, will profit ourselves.
 
-"O Lord God Jesus, gentle and merciful, have mercy upon her whom thou hast taken away from us. Hear us through the Medicine for our wounds [Jesus Christ], who hung upon the Cross, and sitting at thy right hand, now intercedes for us. For I know thy mercy, who desirest that all men should be saved. Remit unto her such sins as she may have contracted after the water of salvation [*i. e.* [Latin], after baptism]. Remit them, O Lord, we pray, remit them. Enter not into judgment with her. Let mercy exalt itself above judgment. For all thy words are true, even the mercy thou didst promise unto the merciful; that such as they were, so wilt thou give unto them. Thou who art merciful unto the merciful, O Lord, have mercy upon thy creature; that thy creature may laud and evermore extol thy mercy; and the soul that triumphs eternally, will say world with-
+"O Lord God Jesus, gentle and merciful, have mercy upon her whom thou hast taken away from us. Hear us through the Medicine for our wounds [Jesus Christ], who hung upon the Cross, and sitting at thy right hand, now intercedes for us. For I know thy mercy, who desirest that all men should be saved. Remit unto her such sins as she may have contracted after the water of salvation [*i. e.* [Latin], after baptism]. Remit them, O Lord, we pray, remit them. Enter not into judgment with her. Let mercy exalt itself above judgment. For all thy words are true, even the mercy thou didst promise unto the merciful; that such as they were, so wilt thou give unto them. Thou who art merciful unto the merciful, O Lord, have mercy upon thy creature; that thy creature may laud and evermore extol thy mercy; and the soul that triumphs eternally, will say world without end; 'In my life I will praise the Lord; I will sing to my God as long as I shall be.'"[^thecitationsarefromvulgate]
+
+[^thecitationsarefromvulgate]: The citations are from the Vulgate, Haydock's version, 1848.
+
+"Oh, may for evermore in happiness abide this daughter mine so dear, I earnestly desire, and unto God be dear, I pray."[^alcuinepist138]
+
+[^alcuinepist138]: Alcuin. epist. 138 (Jaffé).
+
+She was the last of the legitimate queens of Charles; the other ladies, her successors, were united to him by morganatic ties.[^seegenealogicaltable2]
+
+[^seegenealogicaltable2]: See Genealogical Table.—The uxoriousness of Charles occasioned injurious comment. His reputation was bad, so bad that the "Vision of Wetin" representing him as enduring singular punishment in most uncomfortable regions, was not only commended by a bishop as good reading, but believed by him to be true. He also thought that the punishment was well deserved. Walafrid made a metrical version of the Vision.—See, Hincmar. Op. II., 808.
+
+Charles had four sisters,[^seegenealogicaltable3] but only one of them, Gisla, is mentioned in history. She was a most estimable lady, greatly beloved by him and his children; on terms of friendship with Alcuin, and often exchanged the retirement of her convent at Chelles for the amenities of the social circle at court, especially in the early days of the Palace School, in which she bore the pseudonym of Lucia.
+
+[^seegenealogicaltable3]: See Genealogical Table.
+
+**796–799]** About this time Charles had six daughters living, the children of three mothers. Rothaid was the daughter of Himiltrud; Rotrud, Bertha, and Gisla were children of Hildegard; and lastly, Theodrada and Hiltrud, the daughters of Fastrada. The eldest was about thirty, but the youngest were mere children. All were singularly favored, and famed for their beauty.
+
+The bishop of Orleans has drawn a fascinating picture of the royal family on the occasion of a birthday, or other festal gathering. He represents the affectionate father in the midst of his olive branches, each the bearer of some token of love. Omitting the description of the sons, we catch a glimpse of the royal maidens presenting their sweet offerings. Bertha brought roses, Rotrud violets, and Gisla lilies. Rothaid carried the treasures of Pomona, Hiltrud those of Ceres, while Theodrada bore the produce of Bacchus. Their beauty was enhanced by the richness of their toilet, precious ornaments, and the variety of their graces, in which the charms of voice and bearing vied with the fascination of their mirth and wit.[^theodulfcarminadummler]
+
+[^theodulfcarminadummler]: Theodulf, *Carmina* [Latin], ed. Dümmler, *l. c.* [Latin] I., 2, p. 485 sq. Anno 796.
+
+The bishop's description, though interesting and instructive, is inferior to that of Angilbert, whose long experience at court, evident familiarity with all the mysterious intricacies of feminine toilet, and intimate knowledge of the ladies, adds not a little to the vivacity of his account. He sketches them as they rode up to the gathering on the occasion of a royal hunt. Rotrud came first; she was a pronounced blonde, and wore a purple fillet resplendent with the glitter of many gems in her wealth of light yellow hair, which from under a jewelled crown of shining gold fell upon a splendid robe held together with clasps.
+
+Bertha, he says, shines amid a choir of maidens and a throng of attendant ladies. "The tones of her voice, her virile mind, the splendor of her countenance and carriage, the flash of her eyes, the shape of her mouth, and her manner image forth her royal sire." She also wears a golden diadem, and golden filaments sparkle in her shining hair; her snow-white shoulders nestle in a cape of ermine; pearls and gems adorn her robe; the light of many colors flashes from her belt, and the fiery chrysolite from the emerald glory of every part of her attire.
+
+The similar description of the toilet of the other royal maidens we omit, but the poet tells us that the voice, the face, and the hair of Gisla coruscate in radiant light.[^voxfacies] This seems unintelligible, unless the "voice" import the rows of pearly teeth, which might exceed the undefined limits of poetic license in ordinary writers, but hardly in Angilbert, who dwells upon the "silver hands" and the "golden forehead" of the young lady, the light of whose eyes dims the splendor of the sun. Rothaid, the beautiful maid of more than thirty summers, is praised for the metallic and jewelled
+
+[^voxfacies]: "*Vox, facies, crines radianti luce coruscant.*" [Latin]

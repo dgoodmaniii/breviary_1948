@@ -3098,3 +3098,27 @@ He was doubtless a sincere penitent, but the Monk of St. Gall's anecdote about h
 The king, according to him, having heard of others implicated in the conspiracy, sent messengers to question Pepin as to the degree of their guilt, and take his opinion of the punishment they ought to have. They found him in the convent-garden hoeing. "Tell Charles," he said, "what you see me do: I pluck out the weeds that the good plants may thrive." The Monk then makes Charles cut off their heads, and give their possessions to loyal men of meaner birth.[^themonksstory]
 
 [^themonksstory]: The Monk's story recalls Livy, I., 54, and that too is an adaptation of the reply of Thrasybulos to Periander, in Herodotus.
+
+The conspiracy was doubtless extensive; the inquisition searching and minute, and the punishment most severe; but the king's gratitude for his merciful deliverance was also very great: those of his faithful vassals, bishops, abbots, counts, and others, who came out of the scrutiny with clean escutcheons, were made the recipients of rich gifts in gold, silver, silk and the like. Fardulf, the Lombard deacon, who discovered the conspiracy, was royally rewarded not only with numerous presents, but with the presentation of the rich emoluments of the abbacy of St. Denis.[^annaleinh792]
+
+[^annaleinh792]: Annal. Einh., 792, Lauresh. 793, MG. Poet. Lat. aevi Carol. I., 353.
+
+He was in great favor with Charles. A Lombard, and a devoted partisan of Desiderius, he was obliged at the time of his fall to go into exile, but whether to St. Denis, as some think, we cannot tell. Nor is it known what took him to Ratisbon, but his presence in the church of St. Peter at the time when the conspirators were in session was doubtless the turning point in his life. The king honored him with his confidence and employed him on important public business; he acted as *missus* [Latin], and went on an embassy to Rome. On the other hand, Fardulf showed his gratitude by erecting at his own cost, it is thought close to the monastery of St. Denis, a palace for the special delectation of Charles and his suite. This is distinctly stated in the metrical inscription, composed by himself, still extant. He also built a church dedicated to St. John Baptist, in fulfilment of an early vow made at the time he went into exile, as appears from another poetical inscription, the product of his muse.
+
+Fardulf was a many-sided man, and among other attributes possessed the gift of poetry; he was on intimate terms with Theodulf, who calls him his sweet friend.[^hispoeticremains]
+
+[^hispoeticremains]: His poetic remains are found in MG. Poet. Latin. aevi Carolini, I., 353 sq. He died in 806. An epitaph of him is contained in Hibernici exulis carm. 13; cf. MG. *l. c.* [Latin] 633.
+
+One of the suspected persons, the bishop Peter of Ver- **794]** dun,[^heisthesame] figures in the Council of Frankfort as promoter
+
+[^heisthesame]: He is the same who labors under the imputation of having betrayed the city of Trevisa, and—as stated by others—the city of Pavia to Charles. The Gest. epp. Virdun. 14 MG. SS. IV., 44, say that he had been twelve years in disgrace when the Council met; if this is correct the reference may be to something else. Barre, *Hist. Génér. d'Allem.* [French] t. i., p. 425, is too rash in his assertion that Peter did betray the city of Trevisa, that the bishopric of Verdun was the reward of his treachery, and misprision of an attempt on the life of his benefactor, the expression of his gratitude. He was suspected, but none of the crimes were proven against him.
+
+of a spectacle which forcibly illustrates the spirit of the age.
+
+In the absence of evidence establishing his guilt, he avouched his innocence, whereupon it was ordered by the king and the council that he should swear before God and, conjointly with two or three other bishops, or with his metropolitan, that he was in no wise concerned in the said conspiracy, or had been disloyal to the king. Peter could not find among his brethren any willing to swear with him. Nothing daunted, the bishop, of his own free will, chose his man to go to the judgment of God in attestation of his innocence. In other words, his man undertook to fight a duel with another, while the bishop declared on oath, neither on the gospel nor on the relics, but before God only, that, as he was innocent, so God would establish his innocence, and agreeably thereto aid his man in the combat. It is not said that he killed his adversary, but the fact that he returned safe and sound was construed as proof of the innocence of Peter; he was declared innocent, received to the royal favor, restored to all the honors of his station, and fully justified, suffered to depart.
+
+This trial by combat, which used to be common in cases of doubt, gradually fell into disuse, and the Canon which officially records the expurgation and restoration of Peter distinctly states that the ordeal was commanded neither by the king nor the council, but the bishop's deliberate and spontaneous act.[^synodfranconofurt]
+
+[^synodfranconofurt]: Synod. Franconofurt. 794. Labbei Concil. ix. (I., 1), p. 103.
+
+Queen Fastrada died during the session of that council. Shortly before her decease she is mentioned as present at the death of a certain Hostlaicus, most probably by acci-

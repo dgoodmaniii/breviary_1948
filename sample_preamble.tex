@@ -1,0 +1,89 @@
+% =====================================================================
+% sample_preamble.tex -- illustrative preamble for compiling the
+% body-only .tex files in this project (hiemalis.tex, verna.tex,
+% aestiva.tex, autumnalis.tex). Those files intentionally contain NO
+% \documentclass, preamble, or \newcommand definitions of their own;
+% this file shows one way to supply the command vocabulary and get a
+% compilable document. The styling here (headings, rubric color,
+% lettrine treatment) is a plain, generic stand-in for checking
+% structure and catching LaTeX errors -- it is not the final intended
+% typography/design of the printed breviary.
+%
+% Usage (XeLaTeX or LuaLaTeX required, for Unicode + fontspec):
+%   \input{sample_preamble.tex}  (or copy its contents into a wrapper)
+%   \begin{document}
+%   \input{autumnalis.tex}       % or hiemalis.tex / verna.tex / aestiva.tex
+%   \end{document}
+%
+% Since autumnalis.tex, aestiva.tex, hiemalis.tex, and verna.tex all
+% now embed the versicle/response marks (℣ U+2123, ℟ U+211F) and the
+% blessing cross (☩ U+2629) as literal Unicode characters rather than
+% as macros, and the main body font (DejaVu Serif) does not contain
+% glyphs for them, \newunicodechar is used below to substitute a font
+% that does (DejaVu Sans) automatically wherever those three
+% characters occur, without having to touch the body text itself.
+% =====================================================================
+
+\usepackage{fontspec}
+\usepackage{textcomp}
+\usepackage{lettrine}
+\usepackage[dvipsnames]{xcolor}
+\usepackage[margin=2cm]{geometry}
+\usepackage{parskip}
+\usepackage{newunicodechar}
+
+\setmainfont{DejaVu Serif}
+\newfontfamily\liturgicalsymbolfont{DejaVu Sans}
+
+\newunicodechar{℣}{{\liturgicalsymbolfont\char"2123}}  % VERSICLE
+\newunicodechar{℟}{{\liturgicalsymbolfont\char"211F}}  % RESPONSE
+\newunicodechar{☩}{{\liturgicalsymbolfont\char"2629}}  % cross (blessing)
+
+% --- Headings (one required argument each) ---
+\newcommand{\partheading}[1]{{\bigskip\noindent\LARGE\bfseries #1\par\medskip}}
+\newcommand{\partsubtitle}[1]{{\noindent\large\itshape #1\par\medskip}}
+\newcommand{\sectionheading}[1]{{\bigskip\noindent\Large\bfseries #1\par\medskip}}
+\newcommand{\feriaheading}[1]{{\bigskip\noindent\large\bfseries #1\par\smallskip}}
+\newcommand{\hourheading}[1]{{\bigskip\noindent\large\bfseries #1\par\smallskip}}
+\newcommand{\nocturnoheading}[1]{{\medskip\noindent\bfseries #1\par\smallskip}}
+\newcommand{\psalmheading}[1]{{\medskip\noindent\itshape #1\par\smallskip}}
+\newcommand{\hymnusheading}[1]{{\medskip\noindent\bfseries #1\par\smallskip}}
+\newcommand{\oratioheading}[1]{{\medskip\noindent\itshape #1\par\smallskip}}
+\newcommand{\variantheading}[1]{{\medskip\noindent\itshape #1\par\smallskip}}
+\newcommand{\absolutioheading}[1]{{\medskip\noindent\itshape #1\par\smallskip}}
+\newcommand{\suffragiumheading}[1]{{\medskip\noindent\bfseries #1\par\smallskip}}
+\newcommand{\symbolumheading}[1]{{\medskip\noindent\bfseries #1\par\smallskip}}
+\newcommand{\antiphonaheading}[1]{{\medskip\noindent\bfseries #1\par\smallskip}}
+\newcommand{\feastheading}[1]{{\bigskip\noindent\large\bfseries #1\par\smallskip}}
+\newcommand{\sanctusheading}[1]{{\bigskip\noindent\large\bfseries #1\par\smallskip}}
+\newcommand{\diesheading}[1]{{\medskip\noindent\bfseries #1\par\smallskip}}
+\newcommand{\monthheading}[1]{{\bigskip\noindent\Large\bfseries #1\par\medskip}}
+
+% --- Purely decorative divider (no argument) ---
+\newcommand{\sectionornament}{{\par\noindent\centering\rule{0.3\linewidth}{0.4pt}\par\medskip}}
+
+% --- Headings (two required arguments: title + citation) ---
+\newcommand{\lectioheading}[2]{{\medskip\noindent\itshape #1\quad\textit{#2}\par\smallskip}}
+\newcommand{\capitulumlabel}[2]{{\medskip\noindent\itshape #1\quad\textit{#2}\par\smallskip}}
+\newcommand{\canticumheading}[2]{{\medskip\noindent\itshape #1\quad\textit{#2}\par\smallskip}}
+\newcommand{\lectiolabel}[2]{{\medskip\noindent\itshape #1\quad\textit{#2}\par\smallskip}}
+
+% --- Labels (one required argument) ---
+\newcommand{\antlabel}[1]{\textbf{#1}}
+\newcommand{\invitatlabel}[1]{\textbf{#1}}
+\newcommand{\psalmlabel}[1]{\textbf{#1}}
+\newcommand{\benedlabel}[1]{\textbf{#1}}
+\newcommand{\benedictiolabel}[1]{\textbf{#1}}
+\newcommand{\absolutiolabel}[1]{\textbf{#1}}
+\newcommand{\formulalabel}[1]{\textbf{#1}}
+\newcommand{\oratiolabel}[1]{\textbf{#1}}
+
+% --- Rubric (red text; embedded rubrics may nest \textit, etc.) ---
+\newcommand{\rubric}[1]{\textcolor{red}{#1}}
+% Black text embedded within a red \rubric{} span (governing instruction:
+% "embedded rubrics (black text within red-colored rubrics) are preserved").
+\newcommand{\rubricblack}[1]{\textcolor{black}{#1}}
+
+% \P (pilcrow), \dag, \ddag, \label, \pageref, \hspace, \textbf,
+% \textsuperscript, \textit, \textsc, \textdagger, \textdaggerdbl are all
+% standard LaTeX/textcomp commands and need no definition here.

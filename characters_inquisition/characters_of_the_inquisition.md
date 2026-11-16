@@ -447,4 +447,56 @@ People were to be suspected of Manichean tendencies who kept three Lents per yea
 
 In preaching, the Manichees of the early fourteenth century would make a clever beginning by declaring that they were good Christians, who would not swear or kill either man or animals; that they held the faith of Jesus Christ and his Gospel, and were the successors of His apostles. They then went on to explain that this was why they were persecuted by the prelates, priests and monks of the Catholic Church, and especially by the Inquisitors, just as Christ and His Apostles had been persecuted by the Pharisees. They went on to inveigh against the alleged evil lives of the Catholic clergy, their pride and greed, and any other faults that occurred to them to mention. They then passed on to the Sacraments of the Church, which they ridiculed and vituperated—especially, says Bernard, the Holy Eucharist, which they declared could not be the body of Christ, "because even if it were as big as one very large mountain, the Christians would already have eaten it all up." The Host was made of the chaff of wheat, which passed through the tails of horses and mares, as when grain is purged *[per sedacium]{lang=la}*. It went into the *[latrinam]{lang=la}* of the bowels, and passed out *[per turpissimum locum]{lang=la}*, "which it could not do, so they say, if God were there."^[*Ibid.,* p. 242.] A very literal minded and unimaginative folk, the Manichees, and in their own simple way much more materialistic than the Catholics whom they derided.
 
-The Waldenses or Poor Men of Lyons, wrote Bernard, first appeared about the year 1170, making a claim similar to that of the Manichees, that they were the true Christians and successors of Christ's apostles. They believed in Heaven and Hell, but denied that there was a Purgatory. They would take no oaths, and would obey no authority but that of God, which they claimed to receive directly, as holy and perfected men; by the same token denying the authority of the Church, the validity of her sacraments, and the priestly functions of her ministers. Every holy person, they said (including women), was a priest, and their sect alone was holy; hence they absolved one another of sin. Yet in spite of their aversion to ecclesiastical organization and obedience, they imposed both organization and obedience on all who joined their society, "which they call a fraternity," added Brother Bernard. The members had to promise strict obedience to their superiors. (Some of these dissenters had a hierarchy, even a sort of Pope, of their own.) They promised to live in evangelical poverty, with no private property, and in chastity. Theoretically, at least, they owned all things in common, and lived on the alms given to them; "and he who is greater among them distributes and dispenses to any one according to his need." They were Communists of a sort, these Waldenses, and like many radicals, held somewhat unconventional views of sexual morality. "The Waldenses praise continency to their believers," said Bernard, "yet they grant that one ought to satisfy a burning lust by any manner of shamefulness whatsoever, their
+The Waldenses or Poor Men of Lyons, wrote Bernard, first appeared about the year 1170, making a claim similar to that of the Manichees, that they were the true Christians and successors of Christ's apostles. They believed in Heaven and Hell, but denied that there was a Purgatory. They would take no oaths, and would obey no authority but that of God, which they claimed to receive directly, as holy and perfected men; by the same token denying the authority of the Church, the validity of her sacraments, and the priestly functions of her ministers. Every holy person, they said (including women), was a priest, and their sect alone was holy; hence they absolved one another of sin. Yet in spite of their aversion to ecclesiastical organization and obedience, they imposed both organization and obedience on all who joined their society, "which they call a fraternity," added Brother Bernard. The members had to promise strict obedience to their superiors. (Some of these dissenters had a hierarchy, even a sort of Pope, of their own.) They promised to live in evangelical poverty, with no private property, and in chastity. Theoretically, at least, they owned all things in common, and lived on the alms given to them; "and he who is greater among them distributes and dispenses to any one according to his need." They were Communists of a sort, these Waldenses, and like many radicals, held somewhat unconventional views of sexual morality. "The Waldenses praise continency to their believers," said Bernard, "yet they grant that one ought to satisfy a burning lust by any manner of shamefulness whatsoever, their apostles explaining this by saying it is better to marry than to burn (*[Melius est nubere quam uri]{lang=la}*), for it is better, they say, to satisfy lust by any act of shame whatsoever than to be tempted in the heart within; this, however, they keep very secret indeed."^[*Ibid.,* p. 249.]
+
+Twice a year the members of this sect would quietly assemble to hold a general chapter or convention in some town where they were met by some believer, and led, as if they were merchants, to the house of a member, where they would elect officers and carry on other business. They made a great point of visiting churches and hearing sermons, and always maintained a very devout exterior. "Commonly they call themselves brothers, and say they are the Paupers of Christ or the Poor Men of Lyons." Those who had achieved perfection never worked with their hands. Married men, on joining the sect, gave up their wives when initiated.^[*Ibid.,* p. 251.]
+
+Considering the ease with which these self-canonized saints could pervert the hell fire with which Saint Paul threatened fornicators into the flame of lust, Bernard felt it necessary to warn his readers that the Waldenses were the hardest of all heretics to trap and expose. He furnished the Inquisitors with an account of a typical cross-examination, based upon his own experience:
+
+"When one of them is arrested and brought forward for questioning, he comes as if fearless, and conscious of no evil in himself, and secure. Asked if he knows why he is arrested, he answers very calmly, with a smile, 'Sir, I will gladly tell you the reason.'"^["*[Domine, Liberenter discerem a vobis causam.]{lang=la}*"—FN8CONT]
+
+He is never at a loss. When the Inquisitor asks what his faith is, he answers,
+
+"I believe all that a good Christian ought to believe."
+
+"And what do you consider a good Christian?"
+
+"He who believes as the Holy Church teaches to believe and hold."
+
+"What do you call the Holy Church?"
+
+"Lord, what you say and believe to be the Holy Church."
+
+"I believe the Holy Church to be the Roman Church, over which the Pope presides as lord, and other prelates under him."
+
+"And I believe it," answers the suspect promptly (meaning, "*I* believe that *you* believe it," explains Bernard).
+
+Asked about particular articles of faith, such as the incarnation of Christ, His resurrection and ascension, he replies,
+
+"Firmly I believe it."
+
+Does he believe that the bread and wine are changed in the Mass, at the words of the priest, into the body and blood of Our Lord?
+
+"Ought I not indeed to believe that?" he demands, innocently.
+
+"I do not ask whether you *ought* to believe it, but *do* you believe it?"
+
+"I believe whatever you and other good doctors order me to believe."
+
+The Inquisitor asks if the "other good doctors" are not the masters of the man's sect, and the real dictators of his opinions.
+
+"I believe you also, willingly," replies the prisoner, "if you teach me anything that may be good for me."
+
+Inquisitor: "You judge a thing to be good for you, if I teach you what those other masters teach you. But answer simply, if you believe the body of the Lord Jesus Christ to be on the altar."
+
+Heretic: "I believe." (He means, says Bernard, that "there is a body, and all bodies are of the Lord Jesus Christ.")
+
+Inquisitor: "Do you believe that there is that body of the Lord which was born of the Virgin and hung on the cross, and arose from the dead and ascended into Heaven?"
+
+Heretic: "And you, Lord, don't you believe it?"
+
+Inquisitor: "I believe it absolutely."
+
+Heretic: "And I believe it in the same way (meaning, "I want you to believe that I so believe it.")
+
+Urged again to answer explicitly and directly, he tries another tack. "If you wish to interpret everything I say as otherwise than plainly and simply, then I don't know what I ought to answer to you. I am a simple man, and uneducated. Please don't try to trip me up in my words."

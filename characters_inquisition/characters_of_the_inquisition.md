@@ -56,3 +56,67 @@ While I was wondering where this inquisitorial spirit, as distinguished from ord
 | VI | Cardinal Ximenes | [page:181]{.ref} |
 | VII | Some Sixteenth Century Victims | [page:214]{.ref} |
 | VIII | Llorente | [page:266]{.ref} |
+
+## I. Moses
+
+[page:1]{.label}
+
+MOSES appeared among the children of Israel (as Christ would appear) in one of the darkest hours of their history.
+
+Jacob had been gathered to his fathers, leaving behind him a prophecy, that was to be quoted for and against the Jews many centuries later, even in medieval Spain:
+
+> "The sceptre shall not be taken away from Juda, nor a ruler from his thigh, till he come that is to be sent, and he shall be the expectation of nations, tying his foal to the vineyard, and his ass, o my son, to the vine. He shall wash his robe in wine, and his garment in the blood of the grapes. His eyes are more beautiful than wine, and his teeth whiter than milk."^[*Genesis,* XLIX: 10–12. This and all other biblical quotations in this work are from the Douay Version.]
+
+The children of Israel remained in the land of Egypt, multiplied and prospered. Their numbers aroused the fear, as their prosperity incited the envy, of the dwellers of the Nile, who "made their life bitter with hard works in clay, and brick, and with all manner of service, wherewith they were overcharged in the works of the earth," until at last King Pharao, having failed to impose a sort of birth control on the Hebrews by corrupting their widwives, condemned all their male babies to be cast into the Nile—even as Herod, in his fear and jealousy of Christ, would deal with the male infants of Bethlehem.
+
+It was at this moment of danger that Moses, precursor and prophet of the Messias, was born of a Levitical family, in which there were already two children, a son, Aaron, and a daughter, Miriam (Mary). The mother was a resourceful woman. She hid her baby in a basket of bulrushes, calked and camouflaged with pitch and mud, and laid him in shallow water, among the sedges by the river's brink. The girl Miriam, watching from a distance, saw the daughter of Pharao go down with her maidens to bathe, open the basket, discover the crying infant, and take compassion on him, saying, "This is one of the babes of the Hebrews!"
+
+Miriam stepped forward and said, "Shall I go and call to thee a Hebrew woman, to nurse the babe?"
+
+"Go," said the Princess.
+
+Miriam of course fetched her own mother, who took him and nursed him, as another Hebrew woman, a greater Miriam, centuries later would nurse the Holy Child in Egypt. Pharao's daughter called him Moses, "because," she said, "I took him out of the water;" and when he grew up, she adopted him.^[*Exodus,* II: 10.] He became a powerful lad, strikingly handsome, with a majestic presence, a quick temper, and a great deal of natural wisdom, with a certain diffidence and humility—Moses never could speak, for example, with the burning eloquence of his older brother; he may even have stammered a little. But he had a more profound intelligence than Aaron, and according to Rabbinical tradition, he was well taught in the lore of the Egyptians, the Assyrians, the Chaldaeans and the Greeks. The sufferings and sorrows of his people afflicted him, and he must have brooded long and often on how they could be redeemed from their servitude to a people spiritually inferior, who worshipped false gods made with human hands and had many base customs. One day he saw an Egyptian brutally striking a Hebrew workman. "And when he had looked about, this way and that way, and saw no one coming, he slew the Egyptian and hid him in the sand."
+
+Moses supposed that he was unseen, but the next day, stopping a quarrel between two of his own race, he found that one of them knew what he had done, and in resentment threatened to report the matter, as in fact he did: and Moses, condemned to death, fled to the land of Madian.
+
+There, tired and dusty, he sat down by a well, as a far greater Man would sit by the well of Jacob in Samaria: and there came seven maidens, all daughters of the priest of Madian, to draw water for their sheep. Some shepherds arrived, and either out of deviltry, or because water was scarce, began to drive the girls away. To their great surprise, a powerful youth in Egyptian raiment rose up from beside the well, and gave them a thrashing; and after they had fled, Moses gallantly watered the flock for the young women.^[*Ibid.,* II: 15–17.]
+
+The upshot of all this was that he married one of the girls, Sephora, had two children by her, and remained for some years in the land of Madian, until Pharao died, "and the children of Israel groaning, cried out because of the works: and their cry went up unto God from the works. And he heard their groaning, and remembered the covenant which He made with Abraham, Isaac and Jacob.^[*Ibid.,* II: 23–24.]
+
+"Now Moses fed the sheep of Jethro his father-in-law, the priest of Madian: and he drove the flock to the inner parts of the desert, and came to the mountain of God, Horeb. And the Lord appeared to him in a flame of fire out of the midst of a bush: and he saw that the bush was on fire and was not burnt. And Moses said, I will go and see this great sight, why the bush is not burnt. And when the Lord saw that he went forward to see, he called to him out of the midst of the bush, and said, 'Moses, Moses.'
+
+"And he answered, 'Here I am.'
+
+"And he said, 'Come not nigh hither, put off the shoes from thy feet: for the place whereon thou standest is holy ground.'
+
+"And he said, 'I am the God of thy father, the God of Abraham, the God of Isaac, and the God of Jacob.'
+
+"Moses hid his face: for he durst not look at God.
+
+"And the Lord said to him, 'I have seen the affliction of my people in Egypt, and I have heard their cry because of the rigour of them that are over the works: and knowing their sorrow, I am come down to deliver them out of the hands of the Egyptians, and to bring them out of that land into a land that floweth with milk and honey, to the places of the Chanaanite, and Hethite, and Amorrhite, and Pherezite, and Hevite, and Jebusite. . . . But come, and I will send thee to Pharao, that thou mayst bring forth my people, the children of Israel out of Egypt.'"
+
+Moses was terrified in such a Presence.
+
+"Who am I," he said, "that I should go to Pharao, and should bring the children of Israel out of Egypt?"
+
+The Lord replied, "I will be with thee: and this shalt thou have for a sign that I have sent thee: When thou shalt have brought my people out of Egypt, thou shalt offer sacrifice to God upon this mountain."
+
+Moses was a practical person, accustomed to looking ahead. What would the children of Israel say when he told them, "The God of your fathers hath sent me to you?" Would they not say, "What is his name?" What then?
+
+The voice of the Almighty answered,
+
+"I AM WHO AM. Thus shalt thou say to the children of Israel: He WHO IS hath sent me to you."
+
+Moses still hesitated, even after God performed two miracles to convince him—the turning of the rod into the serpent, and the momentary leprosy that whitened his hand and disappeared as it came.
+
+"I beseech thee, Lord, I am not eloquent from yesterday and the day before: and since thou hast spoken to thy servant, I have more impediment and slowness of tongue."
+
+"Who made man's mouth? or who made the dumb and the deaf, the seeing and the blind? Did not I? Go therefore, and I will be in thy mouth: and I will teach thee what thou shalt speak."
+
+"I beseech thee, Lord, send whom thou wilt send."
+
+The Lord now was angry, but He gave Moses one more chance. He suggested Aaron as spokesman for his slow-tongued brother: "He shall speak in thy stead to the people, and shall be thy mouth: but thou shalt be to him in those things that pertain to God."
+
+The last objection having been removed, Moses obeyed. Setting his wife and sons upon an ass, he started on the long journey to Egypt, assembled there the ancients of the people, the earliest known Sanhedrin, and spoke as he had been instructed. "And the people believed . . . and falling down, they adored."
+
+How Moses and Aaron went to Pharao (Moses was then eighty

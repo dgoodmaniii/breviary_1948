@@ -453,7 +453,7 @@ Twice a year the members of this sect would quietly assemble to hold a general c
 
 Considering the ease with which these self-canonized saints could pervert the hell fire with which Saint Paul threatened fornicators into the flame of lust, Bernard felt it necessary to warn his readers that the Waldenses were the hardest of all heretics to trap and expose. He furnished the Inquisitors with an account of a typical cross-examination, based upon his own experience:
 
-"When one of them is arrested and brought forward for questioning, he comes as if fearless, and conscious of no evil in himself, and secure. Asked if he knows why he is arrested, he answers very calmly, with a smile, 'Sir, I will gladly tell you the reason.'"^["*[Domine, Liberenter discerem a vobis causam.]{lang=la}*"—FN8CONT]
+"When one of them is arrested and brought forward for questioning, he comes as if fearless, and conscious of no evil in himself, and secure. Asked if he knows why he is arrested, he answers very calmly, with a smile, 'Sir, I will gladly tell you the reason.'"^["*[Domine, Liberenter discerem a vobis causam.]{lang=la}*"—]
 
 He is never at a loss. When the Inquisitor asks what his faith is, he answers,
 
@@ -500,3 +500,47 @@ Inquisitor: "I believe it absolutely."
 Heretic: "And I believe it in the same way (meaning, "I want you to believe that I so believe it.")
 
 Urged again to answer explicitly and directly, he tries another tack. "If you wish to interpret everything I say as otherwise than plainly and simply, then I don't know what I ought to answer to you. I am a simple man, and uneducated. Please don't try to trip me up in my words."
+
+Inquisitor: "If you are a simple man, reply and act simply, without any cloak of words."
+
+Heretic: "Willingly."
+
+Inquisitor: "Then you are willing to *swear* that you have never taught anything against faith . . . ?"
+
+Heretic (trembling a little): "If I ought to swear, I will swear willingly."
+
+Inquisitor: "You are not asked whether you *ought,* but whether you are *willing* to swear."
+
+Heretic: "If you order me to swear, I will swear."
+
+Inquisitor: "I don't compel you to swear, because since you believe an oath to be unlawful, you will try to shift the blame to me for compelling you; but if you swear, I will hear."
+
+Heretic: "What then shall I swear, if you don't order me?"
+
+Inquisitor: "In such a way as to dispel the suspicion that is against you, because you will be counted as a Waldensian heretic, believing and holding that every oath is unlawful and sinful."
+
+Heretic: "How ought I to speak when I swear?"
+
+Inquisitor: "Swear as you know."
+
+Heretic: "Lord, I don't know unless you teach me!"
+
+"Then I say to him," wrote Bernard, forgetting for the moment to be impersonal, "If I had to swear, then, I would raise my hand and touch the holy gospel of God, and say, 'I swear by this holy Gospel of God that I have never taught and believed anything that might be against the true faith that the holy Roman Church believes and holds.'"
+
+The heretic, "shuddering, and almost like a man who does not know how to form even the words," mumbles something rather verbose which he intends to have sound like an oath, but not to have the form of an oath; or something in the way of prayer meant to simulate an oath, such as, "If God will aid me, and this holy Gospel, (to show) that I am not a heretic, or have not been one, or have not said this or that."
+
+Inquisitor: "Well, will you swear?"
+
+Heretic: "Didn't you hear me swear?"
+
+Finally, when the heretic is straitened by questions, and at the end of his resources of evasion, he pretends to weep, or flatters the Inquisitor, saying that he will perform any penance to free himself from the infamous charge of which he, a simple man, is wholly innocent.
+
+Sometimes, however, he will say he is ready to swear a simple and straightforward oath. At this point the Inquisitor must answer, no doubt with a show of sternness, "If you now swear so that you may go free, take notice that one oath will not be enough for me, nor two, nor ten, nor a hundred, but I shall ask for *[tociens quociens]{lang=la}*, for I know that among you you dispense from and allow for a certain number of oaths, when necessity compels, to set yourselves or others free. But I will require oaths without number, and especially if I have witnesses against you, your oaths will not be of any good to you, and then you will stain your conscience swearing against him, and on that account you shall not escape."
+
+Bernard adds, "In the anxiety of such a moment I have seen some of them confess their errors, that they might go free."^[*Ibid., [loc. cit.]{lang=la}*]
+
+This page from the great Inquisitor's notebook reads like a scene from a comedy; yet often a man's life, yes, and the fate of his soul, hung upon the outcome of the conversation.
+
+Sometimes the Waldenses pretended to be simple-minded or insane, *[sicut David coram Achis]{lang=la}*, and they had a thousand other ways of prolonging their examinations, in the hope that the Inquisitor might weary of the seemingly endless task and let them go, or that they might discredit him among the Catholic laity, "because he seemed to trouble simple men without cause, and to seek a pretext for destroying them in a too cautious examination."^[*Ibid.,* p. 256.]
+
+One of the most troublesome of the sects with which Bernard Gui had to deal was that of the Pseudo-Apostles. Their doctrine was first formulated, about 1260, by Gerard Segarelli of Parma, who, after a vain attempt to join the Franciscan Order, and a formal abjuration of his errors in 1294, relapsed, and was burned at Parma in July, 1300. His successor as "Pope" of this curious order of anarchists, for such they were, was Dulcinus Novariensis, the bastard son of a priest, says Bernard, who had a woman named Margarita as "his consort in crime and heresy." Clement V

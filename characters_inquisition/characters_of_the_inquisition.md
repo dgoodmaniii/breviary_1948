@@ -1539,4 +1539,6 @@ He wrote explanations to King Philip, the Inquisitor General Valdes, to the Pope
 
 Finally Valdes got the brief, April 8, 1559, authorizing him to proceed, for a period of two years only, against any bishops, patriarchs and primates, in matters concerning heresies. Accounts of any such proceedings, however, were to be sent to the Pope at once, and any prelate arrested must be sent to Rome for sentence.
 
-This was enough for the present, and Valdes prepared to act, but with the deliberation characteristic of the Holy Office. Not until May 6 did the *[Fiscal]{lang=es}*, the Licenciate Camino, demand the arrest of the Archbishop and the confiscation of his goods for having "preached, written and dogmatized many heresies of Luther."
+This was enough for the present, and Valdes prepared to act, but with the deliberation characteristic of the Holy Office. Not until May 6 did the *[Fiscal]{lang=es}*, the Licenciate Camino, demand the arrest of the Archbishop and the confiscation of his goods for having "preached, written and dogmatized many heresies of Luther." On the same day Valdes assembled his *[consultores]{lang=es}*, including various bishops and theologians. On May 13 he wrote a letter to Carranza, summoning him to appear and answer the charges against him.
+
+The permission of King Philip, still in Flanders, was considered necessary, and a courier was on the way to ask him for it. He gave it June 26, telling the Inquisitors to respect the dignity and person of the Archbishop.

@@ -1502,3 +1502,9 @@ Two of the Lutheran prisoners, Doña Isabel de Estrada and Doña Maria de Mirand
 There were several other statements, made independently by various witnesses, that pointed toward the Archbishop. Yet the Holy Office waited and watched for something more substantial. Ambiguity was deplorable, but it was not a crime.
 
 The next report about the Archbishop had to do with his conduct at the bedside of Charles the Fifth. The Emperor's confessor testified that the Archbishop came in the day before His Majesty died, and without raising any question about his contrition for his sins, or penance, absolved him several times. This seemed to the confessor, Fray Juan de Regla, to be making a mockery of the sacrament. Charles himself showed his displeasure when the Archbishop kissed his hands and said, "Let Your Majesty have great confidence, for if there is any sin or has been any sin, the Passion of Christ alone suffices."
+
+About two weeks after the Emperor's death, corroboration of this statement was given by Don Luis de Ávila y Zuñiga, *[comendador mayor]{lang=es}* of Alcántara and historian of the wars in Germany, who said that Carranza held a crucifix before the eyes of Charles, saying, "Here is the one who pays for all; now there is no more sin, all is pardoned." Luis Quijada partially confirmed this.
+
+Fray Marcos de Cardona quoted the Emperor as showing his distrust of Carranza by saying, "When I offered Maestro Miranda the bishopric of the Canaries, he did not want it, and now he has accepted the archbishopric of Toledo. Let us see what his sanctity will amount to."
+
+It was even said that the Emperor's confessor and some of the nobles had refused to permit the Archbishop to enter the room,

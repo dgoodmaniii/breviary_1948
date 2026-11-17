@@ -1638,3 +1638,5 @@ Aranda was warmly admired by the Freemason Voltaire, friend of Frederic of Pruss
 > Plongeant dans la nuit du tombeau,\
 > De l'Inquisition la puissance infernale."*^[*[Ibid.]{lang=la}*, t. iv, *[Poésies]{lang=fr}*, p. 172.]
 :::
+
+Voltaire congratulated Aranda on his decree of February 7, 1770, which struck a blow at the Holy Office by depriving it of its jurisdiction over bigamy cases. "All Europe ought to congratulate you on it," he wrote. Pope Pius VI, however, observed that the ministers of Charles III were men without religion.

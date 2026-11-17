@@ -1703,3 +1703,7 @@ Many other horrors have appeared instead, and will appear; and in justice to the
 > As if some lesser god had made the world,\
 > But had not force to make it as he would,\
 > Until the High God enter from beyond . . . ?"
+
+Not to press the point too far—for some liberty must be allowed the fancies of poets!—this and much more that could be mentioned is clearly symptomatic of the sickness which afflicts a world which will not turn to Christ.
+
+(4) *Totalitarianism.* Is not the present evolution of government a retrogression toward heresies that the medieval Inquisitors combatted with all their might? Communism, first propagated by the Freemasons on the ruins of Protestantism, finally set up in Russia the absolute state which the *[Fraticelli]{lang=it}* had invoked (in so far as the state of science and communications would permit them to envisage it); it was a perversion also of their concept of primitive Christianity, without private property.

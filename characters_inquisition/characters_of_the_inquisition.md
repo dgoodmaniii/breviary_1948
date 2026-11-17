@@ -1382,3 +1382,15 @@ The *[Plaza Mayor]{lang=es}*, where the *[auto]{lang=es}* itself was to be held,
 It was already afternoon when the sermons stopped, and a death-like hush fell over the mighty crowd. A distant solemn music was heard. The procession of the Green Cross must have started at last from the chapel of the Holy Office.
 
 The *[Cruz Verde]{lang=es}* was the ordinary symbol of the Inquisition. Like every institution in Medieval Spain, the Holy Office had its own coat of arms; a green Cross on a black field. On the right was a branch of olive, on the left a sword; and underneath a burning bramble bush—with the cross of Saint Dominic on the reverse side. Everything on this blazon was symbolic. The black field represented the sorrow of the Church for the apostacies and crimes of the heretics, and the persecutions she endured at their hands. The green cross stood for her hope that they would repent before it was too late, and save their souls; it represented also the eternity, truth and purity of the gospel of Christ, and its vivifying effect upon human society. The olive branch suggested the peace and clemency offered to heretics who repented; and that good olive tree to which St. Paul had so eloquently compared the divine revelation. The sword of justice reminded one of the punishment in store for the obstinate and the impenitent. The burning bramble bush signified the one in which Moses had seen the Lord God, and the faith of the Catholic Church, whose fundamental truths he handed down, and whose prophet and forerunner he was.
+
+At the head of the long line, that May day in 1559, walked the members of all the religious communities in Valladolid and the nearby villages, the monks in their various habits passing two by two, each holding a burning wax taper in his hand. Next came the commissaries, consultors, and various other officials of the Holy Office, with their secretaries, the *[alguacil]{lang=es}* mayor and the *[fiscal]{lang=es}*; and these all carried lighted candles of huge size. Then came a Dominican friar bearing, under a pallium of black velvet, a large green wooden cross, covered with mourning crape. Behind this symbolism of sorrow and of hope came the musicians of the chapel of the Holy Office, chanting the *[Vexilla regis]{lang=la}*, the ancient and magnificent hymn so often sung in the Good Friday processions:
+
+> Forth comes the Standard of the King:\
+> All hail, thou Mystery adored!\
+> Hail, Cross, on which the Life Himself\
+> Died, and by death our life restored. . . .
+>
+> O sacred wood, in Thee fulfilled\
+> Was holy David's faithful lay,\
+> Which told the world that from a tree\
+> The Lord should all the nations sway. . . .^[I have taken the translations of these two stanzas from the Daily Missal of Dom Gaspar Lefebre, O. S. B. p. 681. The classic English translation, a very free one, is that of Blount.]

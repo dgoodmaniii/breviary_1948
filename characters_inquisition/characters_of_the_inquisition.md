@@ -1529,4 +1529,4 @@ It has been the fashion in our language to exploit the obvious bias and rancor o
 
 Meanwhile Fray Domingo de Soto had written to Carranza, praising the Catechism; and the Archbishop wrote him November 24, 1558, begging him to say the same things officially. The whole affair, he said, was an effort on the part of the Archbishop of Sevilla to discredit him and all friars, and exclude them from public offices. "I have studied as much theology as Maestro Cano," he added.
 
-Perhaps de Soto had read meanwhile the opinion of Melchor Cano. At any rate, his enthusiasm for the Catechism had cooled, and he was reluctant to give an opinion, when asked for one by Valdes.
+Perhaps de Soto had read meanwhile the opinion of Melchor Cano. At any rate, his enthusiasm for the Catechism had cooled, and he was reluctant to give an opinion, when asked for one by Valdes. The Inquisitor General then ordered him to give one within fifteen days, under pain of excommunication. De Soto then rendered a cautious one, granting the good intentions of the author, but observing that certain phrases were questionable, considering the dangers of the times.

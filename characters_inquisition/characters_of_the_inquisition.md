@@ -1548,3 +1548,5 @@ Carranza received her letter August 6. He replied next day that he would go, and
 On the seventeenth the Fiscal made a second demand for the Archbishop's arrest, this time on the ground that there was reasonable fear that he might flee, and Valdes, growing impatient, granted the request. When the Archbishop reached Torrelaguna August 20, he was met by some officers of the Inquisition, who took him into custody.
 
 The rest of this sad and complicated story has been better publicized. The Archbishop was kept in the new prison of the Holy Office, apparently not as agreeable a house as the old, and in a room which he complained was badly ventilated, smelled like a stable, and was so dark that he often had to light a candle at nine in the morning. He received his meals on broken plates, and his dessert on a book.^[*[Documentos inéditos para la historia de España]{lang=es}*, V, pp. 540, 549, 552.]
+
+The great process began. There were innumerable delays, many of them caused by the Archbishop's appeals to rules of the Inquisition protecting his rights, others, we must infer, by the unrelenting pressure of his foes. Meanwhile Pope Paul IV died; but his

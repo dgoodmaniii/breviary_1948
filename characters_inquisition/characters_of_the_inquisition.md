@@ -1482,3 +1482,13 @@ In the *Commentaries* there certainly were many expressions which suggested dogm
 "Living faith does not tolerate evil works."
 
 "Through the merits of the Passion of Christ, our good works have value before God, and those which do not have their origin there, however good they may be, have no value whatever, nor does God owe us anything on their account; for thence they draw all their worth."^["*[Por los méritos de la Passion de Christo tienen valor delante Dios nuestras buenas obras, e las que no nacen de allí, por buenos que sean, no tienen valor alguno, para que por ellos nos deba Dios algo; que de allí traen todo su valor.]{lang=es}*"]
+
+"The Passion was one complete and accomplished satisfaction for all sins."
+
+"God interposed Himself, throws a mantle over my sins, and puts His Son in my place, and places all my sins upon Him, and I remain clear and free from all of them."
+
+"The first and principal instrument to justify men is Faith, although other causes contribute to our justification."
+
+"God has promised the state of blessedness to all who with faith accept the Redemption made by Jesus Christ."^[Señor Menendez y Pelayo gives several other similar examples, *[loc. cit.]{lang=la}*, pp. 22–23, and others having an *[Alumbrado]{lang=es}* flavor.]
+
+To many of such statements by Carranza a Catholic interpretation can be given; but as Señor Menendez y Pelayo asks, why did this theologian, instructed in lucid scholastic methods of thinking and writing by the sons of Saint Dominic, express himself so ambiguously, when Lutheranism was attacking the Church all over Europe—and this, too, in a work to be read by simple uneducated persons, unaccustomed to making logical distinctions?

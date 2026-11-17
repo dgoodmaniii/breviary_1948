@@ -1583,4 +1583,4 @@ When the news of his release reached Salamanca, there was a great outpouring of 
 
 "As I was saying when interrupted—"
 
-In 1582 he was again denounced to the Inquisition, but this time
+In 1582 he was again denounced to the Inquisition, but this time the charge was not taken seriously. After the death of Saint Teresa of Ávila (whom he revered, but never met in life) the Royal Council commissioned him to edit an edition of her works. He helped in the reformation of his order. In 1590, old and ill, he defended the Carmelite nuns, and he defended the Pope's authority against the pretensions of the King's ministers, who would not allow papal bulls to be published in Spain.

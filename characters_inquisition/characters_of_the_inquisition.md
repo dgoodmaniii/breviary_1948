@@ -1564,3 +1564,5 @@ This was believed by all except perhaps a few of his bitter personal enemies. Po
 A later Congregation of the Index put the Catechism of Carranza back on the list of forbidden books; and Catholics are prohibited from reading it to this day.
 
 In a world where orderly thinking has become more and more rare, men are likely to say, "Why so much persecution of one whose intentions were admitted to be good? Why so much fuss about a mere dogma or two? Are a few words so important that they are worth the sacrifice of a human life, or of human liberty?"
+
+A Dominican Inquisitor, or the great Franciscan Inquisitor Ximenes, would have answered gravely, without hesitation, "Yes, they are. Words convey truth or falsehood. They lead men to action which is good or bad, according as it supports one side or the other of the struggle between opposing spiritual forces, which is the reality behind all the shifting appearances of history."

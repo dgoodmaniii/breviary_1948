@@ -1738,4 +1738,4 @@ Here on the last edge and in the twilight of the world, the stage is set for the
 
 Now, either the Catholic body will come into sharp conflict with those about them, or they will not.
 
-If they do not, it will be the first time in history that the Mystical Body of Christ (and American Catholics, like all others,
+If they do not, it will be the first time in history that the Mystical Body of Christ (and American Catholics, like all others, are "cells" of that Body) has not aroused violent and unreasoning antagonism. This has been so uniformly a characteristic of the life of Christ and the life of the Catholic Church, that when persons calling themselves Christian or Catholic do not meet with opposition, and strong opposition, one may well begin to wonder whether they are profoundly Christian and truly Catholic. Perhaps then it is a reflection upon us American Catholics that we have inspired so little antagonism (comparatively) thus far.

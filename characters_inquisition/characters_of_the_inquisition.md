@@ -1640,3 +1640,5 @@ Aranda was warmly admired by the Freemason Voltaire, friend of Frederic of Pruss
 :::
 
 Voltaire congratulated Aranda on his decree of February 7, 1770, which struck a blow at the Holy Office by depriving it of its jurisdiction over bigamy cases. "All Europe ought to congratulate you on it," he wrote. Pope Pius VI, however, observed that the ministers of Charles III were men without religion.
+
+The Inquisition, next perhaps to the Jesuits, was the *[bête noire]{lang=fr}* of the Masons, Jansenists, Encyclopedists, "broadminded" or political Catholics seeking the favor of men in high places, and all the rest of the shameful crew who were preparing miseries for the Church and for humanity beyond the power of their puny minds to imagine. It was the Company of Jesus, however, that they attacked first. As Voltaire wrote to Helvetius, "Once we have destroyed the Jesuits, we shall have it all our own way with *[l'infâme]{lang=fr}*."

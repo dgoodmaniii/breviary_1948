@@ -1507,4 +1507,10 @@ About two weeks after the Emperor's death, corroboration of this statement was g
 
 Fray Marcos de Cardona quoted the Emperor as showing his distrust of Carranza by saying, "When I offered Maestro Miranda the bishopric of the Canaries, he did not want it, and now he has accepted the archbishopric of Toledo. Let us see what his sanctity will amount to."
 
-It was even said that the Emperor's confessor and some of the nobles had refused to permit the Archbishop to enter the room,
+It was even said that the Emperor's confessor and some of the nobles had refused to permit the Archbishop to enter the room, and that Carranza had finally gone in without permission, to the obvious displeasure of Charles.
+
+Álvaro Lopez, a priest of Ciudad Rodrigo, quoted Francisco de Vivero as saying, "God forgive the Archbishop, for if it were not for him, not so many of our good people would be in prison."
+
+Two Franciscan friars reported that in a sermon at Saint Paul's, Valladolid, August 21, 1558, the Archbishop had defended or exculpated the *[Alumbrados]{lang=es}*. Others reported that some of his sermons in London, though publicly praised, had caused no little scandal among devout Catholics. After one sermon there he was warned through a friend by a Franciscan father to watch out what he was saying, for he had uttered certain Lutheran phrases.
+
+One of the letters of Carranza to Dr. Agustin Cazalla contained this expression, "I grieve for the troubles you have had; but this is the way to glory, and God, who gives the fatigue, helps with his favor to endure it, and helps to bring about the remedy." Asked in prison what troubles the Archbishop had referred to, Cazalla said it was the death of his brother-in-law, who left thirteen children, and a lot of debts for him to pay.

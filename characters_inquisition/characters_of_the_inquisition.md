@@ -991,4 +991,12 @@ The powerful *[Conversos]{lang=es}* of Sevilla, related by marriage to rich Jews
 
 The seriousness of this situation, with the Turks on the sea, and war with the Moors of the south imminent, can be imagined. Fortunately for the new-found unity of Spain the conspiracy was revealed by a daughter of Diego de Susan to her Christian lover, who informed the Inquisitors. Several of the leading men of Sevilla were arrested. Arms for a hundred were found in the house of the Dean of the Cathedral. The evidence was submitted to a jury of lawyers, *[viri boni et periti]{lang=la}*, and as a result of their recommendations, the first *[auto de fe]{lang=es}* in Castile was held February 6, with Mass at the Cathedral, followed by a sermon by Fray Alonso de Ojeda.
 
-Considering that in any country in the world at that time, a conspiracy to take arms against the sovereign would have meant
+Considering that in any country in the world at that time, a conspiracy to take arms against the sovereign would have meant death for high treason for all concerned, some of the *[Conversos]{lang=es}* implicated got off very lightly. Those who had confessed were given the usual penances and reconciled to the Church. And so the *[auto de fe]{lang=es}* ended with solemn music; for an *[auto]{lang=es}* was literally an "act of faith," and was purely a religious ceremony.
+
+Outside the church, six of the chief conspirators, who had not been let off with mere penance, were handed over to the civil authorities, who proceeded to burn them outside the walls of the city. Some days later, Diego de Susan and two others were burned. According to Bernaldez, who was in Sevilla at the time, the rabbi died as a Christian.
+
+There was no longer any doubt in the minds of the secret Jews that the Queen was as earnest about this affair as she had been about the murders and lootings she had punished. Panic seized them, and they fled in all directions, some having recourse to Rome. At one *[auto]{lang=es}*, 700 abjured and were reconciled.
+
+Meanwhile the plague was raging in Andalusia. In Sevilla alone, 15,000 died of it that summer. The *[Conversos]{lang=es}* begged the Inquisitors to let them leave the city until the epidemic was over, and the permission was granted. There was a courtesy, peculiarly Spanish, in this indulgence under the circumstances. Some of the fugitives, of course, never returned. Others met at Rome, and raised the clamor of righteous indignation and injured innocence at which the Jews, in their long unhappy history, had learned to be so skilful.
+
+During the summer another edict of grace, this time for two months, was published, and in all Castile, 17,000 confessed and were absolved—1,500 of them at one *[auto]{lang=es}* alone.

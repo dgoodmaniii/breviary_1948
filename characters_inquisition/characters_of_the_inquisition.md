@@ -1609,4 +1609,4 @@ The age of Philip II was the golden age of Spain. The Inquisition, with all its 
 
 [page:266]{.label}
 
-THE man who gave the *[coup de grâce]{lang=fr}* to the Spanish Inquisition, and wrote its epitaph across the slowly darkening skies of the modern world was, by a paradox significant and saddening, both a Catholic priest and a Freemason, Juan Antonio Llorente.
+THE man who gave the *[coup de grâce]{lang=fr}* to the Spanish Inquisition, and wrote its epitaph across the slowly darkening skies of the modern world was, by a paradox significant and saddening, both a Catholic priest and a Freemason, Juan Antonio Llorente. A great many influences had converged to produce him two centuries after the death of Philip the Second; and it goes almost without saying that some were influences which would never have been permitted to worm their way back into Spain, if the successors of the Dark Demon of the South (as Philip's enemies called him) had been men of his kidney.

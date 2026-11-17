@@ -1562,3 +1562,5 @@ All those heavy years the Archbishop had borne his cross with patience and resig
 This was believed by all except perhaps a few of his bitter personal enemies. Pope Gregory XIII, like his predecessor, held a high regard for the Archbishop, and had a handsome monument erected to his memory in Rome. In Spain the chronicler Morales, at the command of King Philip, wrote an account of the whole case which is surprisingly compassionate and without animus.^[For this, the sentence of Gregory XIII and the sixteen condemned propositions, see the *[Coleccion de Documentos inéditos]{lang=es}*, etc., V, pp. 482 *[et seq.]{lang=la}*]
 
 A later Congregation of the Index put the Catechism of Carranza back on the list of forbidden books; and Catholics are prohibited from reading it to this day.
+
+In a world where orderly thinking has become more and more rare, men are likely to say, "Why so much persecution of one whose intentions were admitted to be good? Why so much fuss about a mere dogma or two? Are a few words so important that they are worth the sacrifice of a human life, or of human liberty?"
